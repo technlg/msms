@@ -1,0 +1,168 @@
+# pt inter word stell mill indonesia
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![inter world steel mills indonesia work](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## inter world steel mills indonesia work
+Inter World was founded in 1971 as a steel rolling mill company producing strip-plat Our first steel plant was situated in North Jakarta occupied 46 hectares of land In 1975 Inter World Steel built a second rolling mill line to produce Indonesia s first equal angle
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Junardi Ridwan - HRD - PT. INTER WORLD STEEL MILLS .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Junardi Ridwan - HRD - PT. INTER WORLD STEEL MILLS .
+PT. INTER WORLD STEEL MILLS INDONESIA Apr 2012 - Saat ini 9 tahun Pendidikan smu negeri 4 -Lihat profil lengkap Junardi Melihat siapa yang sama-sama Anda kenal Minta diperkenalkan Hubungi langsung Orang juga melihat Eji Hartiman 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![China's Delong to build $950m steel factory in Morowali .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## China's Delong to build $950m steel factory in Morowali .
+18/6/2017· Delong, through a circular letter dated June 12, stated its plan to form a joint venture named PT Dexin Steel Indonesia for the project. Some 45 percent of the shares will be owned by Delong's 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Inter World Steel Mills Indonesia - Hubungi Kami Untuk .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Inter World Steel Mills Indonesia - Hubungi Kami Untuk .
+PT. Inter World Steel Mills Indonesia KEM Tower 18th floor Jl. Landasan Pacu Barat Blok B10 Kav.2 Kota Baru Bandar Kemayoran Jakarta 10610, Indonesia (+62 21) 6570 3888 / 6570 3988 sales@iwsteel interworldsteelmillsindonesia Beranda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT Inter World Steel Mills Indonesia Jakarta](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## PT Inter World Steel Mills Indonesia Jakarta
+PT Inter World Steel Mills Indonesia Jakarta Alamat lengkap Jl P Jayakarta 131-A/44-46, Mangga Dua Selatan, Sawah Besar Kabupaten/Kota Jakarta Kode pos 10730 Nomor telepon/HP + Website iw-groupcom Fax 021 6013
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Suryani Koewoso MM () - Purchasing Import - PT. .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Suryani Koewoso MM () - Purchasing Import - PT. .
+Suryani Koewoso MM () | Jabodetabek, Indonesia | Purchasing Import di PT. Inter World Steel Mills Indonesia | 13 koneksi | Lihat halaman utama, profil, aktivitas, dan artikel Suryani Lihat profil lengkap Suryani Melihat siapa yang sama-sama Anda kenal
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Krakatau Steel](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Krakatau Steel
+PT Krakatau Steel (Persero) Tbk. (Krakatau Steel Company Limited) is the largest steel maker in Indonesia, headquartered in Cilegon, Banten.The factory is set on a 280-hectare (700-acre) plot in the western end of Banten and adjacent to the Sunda Strait, and where the Krakatoa volcano and island from which the company takes its name are located.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![STEEL STATISTICS | worldsteel](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## STEEL STATISTICS | worldsteel
+worldsteel publishes monthly production statistics for crude steel, direct reduced iron (DRI) and blast furnace iron (BFI). These are global steel statistics per country, including the main top steel-producing countries, China, Japan, India, and USA.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT. APAC INTI CORPORA](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## PT. APAC INTI CORPORA
+APACINTI's factory is located at a strategic and advantageous place in Bawen, Semarang, Central Java, Indonesia. APACINTI operates with total workforce of 5.000 people. APACINTI delivers 55% of its massive & world‐class quality products to international market, to over 74 countries in 5 continents worldwide, and 45% to domestic market.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT. Inter World Steel Mills Indonesia - Sispro Konstruksi](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## PT. Inter World Steel Mills Indonesia - Sispro Konstruksi
+PT. Inter World Steel Mills Indonesia PT. Inter World Steel Mills Indonesia SUPPLIER: BESI BETON PRODUSEN: BESI BETON Kirim Pesan Alamat: KEM Tower 18th Floor, Jl. Landasan Pacu Barat Blok B 10 Kav. 2 Kota Baru Bandar Kode Pos: 10610 Kota: 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Inter World Steel Mills Indonesia, PT >> Besi Beton - .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Inter World Steel Mills Indonesia, PT >> Besi Beton - .
+Badan Usaha Inter World Steel Mills Indonesia, PT Alamat : Jl. Palm Manis Raya Kecamatan Jati Uwung, Kabupaten Tangerang, Provinsi Banten Produk Usaha : .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Krakatau Posco | Products](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Krakatau Posco | Products
+•Optional with extra price : Killing method (Si, Al, or combined), Calcium (Ca-Si) treatment, Vacuum degassing treatment. •For 'Special' grade (1 & 2), will get extra price related with additional control action than 'Normal' grade. •Need discussion before order and if
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT. INTER WORLD STEEL MILLS INDONESIA - STEEL .](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## PT. INTER WORLD STEEL MILLS INDONESIA - STEEL .
+PT. INTER WORLD STEEL MILLS INDONESIA - STEEL MANUFACTURING, Curug, 15810, Jalan Palem Manis 2 10, TEL: , Indonesia, On this page : PT. INTER WORLD STEEL MILLS INDONESIA, ID
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![About POSCO - POSCO - Company - POSCO](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## About POSCO - POSCO - Company - POSCO
+steel maker in the world POSCO was launched on April 1, 1968 with a mission for national industrialization. As the first integrated steel mill in Korea, Posco has grown to produce 41 million tons of crude steel a year,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Home | worldsteel](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Home | worldsteel
+The World Steel Association (worldsteel) is one of the largest and most dynamic industry associations in the world, with members in every major steel-producing country. worldsteel represents steel producers, national and regional steel industry associations, and 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT Inter World Steel Mills, INDONESIA KEM TOWER 18TH .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## PT Inter World Steel Mills, INDONESIA KEM TOWER 18TH .
+PT Inter World Steel Mills at INDONESIA KEM TOWER 18TH FLOOR JLL ANDASAN PACU BARAT BLOK B10 KAV.2 K OTA BARU BANDAR KEMAYORAN JAKARTA. Find their customers, contact information, and details on 5 shipments.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Master Steel](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Master Steel
+Master Steel builds meaningful experiences through content strategy, safety and deployment. PT The Master Steel Mfc was established in 1972 as one of the pioneers in steel-making and rolling in Indonesia. The first steel plant was initially set up as a green-field 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT Interworld Steel Mills Indonesia, KEM TOWER 18TH .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## PT Interworld Steel Mills Indonesia, KEM TOWER 18TH .
+PT Interworld Steel Mills Indonesia at KEM TOWER 18TH FLOOR JL.LANDASAN PA BARAT BLOK B10 KAV.2 KOTA BARU BAND KEMAYORAN JAKARTA 10610 INDONESI. Find their customers, contact information, and details on 15 shipments.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pabrik Steel Produksi Besi, Beton & Baja Indonesia - Inter .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Pabrik Steel Produksi Besi, Beton & Baja Indonesia - Inter .
+PT. Inter World Steel Mills Indonesia KEM Tower 18th floor Jl. Landasan Pacu Barat Blok B10 Kav.2 Kota Baru Bandar Kemayoran Jakarta 10610, Indonesia (+62 21) 6570 3888 / 6570 3988 sales@iwsteel interworldsteelmillsindonesia Beranda 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Working at PT Inter World Steel Mills Indonesia company .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Working at PT Inter World Steel Mills Indonesia company .
+Inter World was founded in 1971 as a steel rolling mill company producing strip-plates. Our first steel plant was situated in North Jakarta, occupied 4.6 hectares of land. In 1975 Inter World Steel built a second rolling mill line to produce Indonesia's first equal angle bars.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![INTERFLOUR Group](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## INTERFLOUR Group
+Interflour Group brings together some of the finest flour mills in Southeast Asia with 10 mills operating in Indonesia, Malaysia, Vietnam, the Philippines and Turkey. Interflour's modern mills have a total milling capacity of more than 2 million tons per year making it
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Inter World Steel Mills Indonesia PT | Informasi .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Inter World Steel Mills Indonesia PT | Informasi .
+Inter World Steel Mills Indonesia PT Ikhtisar 2 gaji Why join us MANUFACTURING CAPABILITIES / EQUIPMENTS : Tentang Perusahaan No. Telepon (021) Address Pabrik Jl Muara Baru 12 Penjaringan, Penjaringan Jakarta Utara 14440 DKI Jakarta 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![IEM Industries Indonesia, PT. | LinkedIn](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## IEM Industries Indonesia, PT. | LinkedIn
+17/2/2021· INTER WORLD STEEL MILLS INDONESIA, PT Mining & Metals JAKARTA, Jakarta IEMA IEMA Environmental Services Lincoln, England PT. Somagede Indonesia PT. Somagede Indonesia 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAOSTEEL GROUP | Profile](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## BAOSTEEL GROUP | Profile
+The three major credit rating agencies in the world assigned Baosteel the highest credit rating among the global comprehensive iron and steel companies. In the new year, Baosteel will deepen the reform in various aspects, speed up strategic transformation, focus on structural adjustment, reduce losses and increase profits and capability enhancement in safety and environmental
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![China's Delong to build $950m steel factory in Morowali .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## China's Delong to build $950m steel factory in Morowali .
+18/6/2017· Chinas Delong Holdings Limited plans to build a stainless steel factory in the Morowali Industrial Park in Central Sulawesi with an investment of around US$950 million, an official 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![| PT. Sumitomo Indonesia](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## | PT. Sumitomo Indonesia
+PT Sumitomo Indonesia holds not only API-U but also all other license required to import various type of steel materials. For some steel material, we also have good source and capability to import SNI mandatory materials from the approved steel mill.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Construction of Gahapi-Nanjing $200 million steel mill .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Construction of Gahapi-Nanjing $200 million steel mill .
+Construction of the steel mill is being carried out by PT Gunung Gahapi Nisco Indonesia, a joint venture between Indonesian steel maker PT Gunung Gahapi Sakti and China' s Nanjing Iron and Steel Co.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MysteelOrbis - PT. INTER WORLD STEEL MILLS .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## MysteelOrbis - PT. INTER WORLD STEEL MILLS .
+Company profile of PT. INTER WORLD STEEL MILLS INDONESIA on the New SteelOrbis company directory that connects more than 44,000+ steel companies Steel Grade Equivalency Price Forecasters Price Forecasters Price Forecasters Orbis Turkish Scrap
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT Interworld Steel Mills Indonesia, KEM TOWER 18TH .](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## PT Interworld Steel Mills Indonesia, KEM TOWER 18TH .
+PT Interworld Steel Mills Indonesia localizada en KEM TOWER 18TH FLOOR JL.LANDASAN PA CUBARAT BLOK B10 KAV.2 KOTA BARUB ANDAR KEMAYORAN JAKARTA 10610. Encuentre a sus clientes, obtenga información de contacto y detalles acerca 26
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Inter World Steel Mills Pt - Tangerang](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Inter World Steel Mills Pt - Tangerang
+Kategori perusahaan kami adalah kegiatan medis lainnya dan layanan industri. Kunjungi website kami untuk mendapatkan informasi lebih lanjut.,Jl Palem Manis II Km 10 Kawasan Industri Manis II,Inter World Steel Mills Pt,Tangerang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Krakatau Posco | About Us](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Krakatau Posco | About Us
+PT KRAKATAU POSCO is a JVCo. (Joint Venture Company) between PT Krakatau Steel (Persero) Tbk, Indonesia and POSCO Korea. The construction commenced in 2011 and took 36 month to complete the Integrated Steel Mill with the 1st Blast Furnace Technology in Indonesia.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![The leading steel pipe manufacturer in Indonesia - .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## The leading steel pipe manufacturer in Indonesia - .
+Steel pipe PT. Bakrie Pipe Industries is the first, largest and prominent steel pipe manufacturer in Indonesia which produces various steel pipes such as oil & gas pipeline, water line, piling pipe, telephone pole, electrical pole, structural pipe for general construction
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gunawan Steel Group](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Gunawan Steel Group
+The Gunawan Steel Group was an Indonesian steel group founded 1989, which owned several Steel works in Southeast Asia. The group's companies were taken over by the Indonesian Bank Restructuring Agency ( Badan Penyehatan perbankan Nasional, BPPN) in 1998 following financial problems as a result of the 1997 Asian financial crisis .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAOSTEEL GROUP | Home](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## BAOSTEEL GROUP | Home
+Baoshan Iron & Steel Co., Ltd. Overview Operation Performance Fact Book Financial Information Financial Report Financial Highlights FAQs Contact Us Stock Information Stock Price Dividend Policy Shareholders Demographic IR Service IR Calendar E-mail 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Steel Tubes and Steel Pipes Manufacturer in Indonesia .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Steel Tubes and Steel Pipes Manufacturer in Indonesia .
+Indonesia Steel Tube Works (ISTW) is a major scale of steel tube manufacturer with more than 40 years experience of producing fine steel tubes and pipes. We have been providing services for more than hundreds of our satisfied customers around Indonesia and we will continue manufacturing excellent quality of steel tubes with fine precision in the years to come.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Inter World Steel Mills Indonesia, PT - .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Inter World Steel Mills Indonesia, PT - .
+PT. INTER WORLD STEEL MILLS INDONESIA Tahun ke-1, Perusahaan Gratis Menu Utama Beranda Produk Besi Bilet rectangular billet Profil Profil Perusahaan Aspek Legalitas Sertifikat Fasilitas Referensi Referensi Proyek Tangerang, Banten Profil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Profil dan Alamat Lengkap PT.INTER WORLD STEEL .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Profil dan Alamat Lengkap PT.INTER WORLD STEEL .
+PT. INTER WORLD STEEL MILLS INDONESIA adalah sebuah perusahaan yang beralamat di Jl. Palm Manis Raya, tepatnya di Kota atau Kabupaten Tangerang yang merupakan salah satu kota kabupaten penting yang terletak di Provinsi Banten.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![pt inter word stell mill indonesia](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## pt inter word stell mill indonesia
+pt inter woods steel mill indonesia riversidevets pt inter word stell mill indonesia Grinding Mill China. inter world steel mill indonesia SHANGHAI NMN MACHINERY CO., LTD is one hightech enterprise, which involves RD, +Obtener precio
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PT.INTER WORLD STEEL MILLS INDONESIA PT.KRAKATAU WAJATAMA PRIME STEEL .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## PT.INTER WORLD STEEL MILLS INDONESIA PT.KRAKATAU WAJATAMA PRIME STEEL .
+2 107/05/31 15:50:12 PT.INTER WORLD STEEL MILLS INDONESIA PT.KRAKATAU WAJATAMA PRIME STEEL BILLET( ) USD14,310 10 107/05/31
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [custom screw conveyor selangor](custom%20screw%20conveyor%20selangor.md)
+* [marchisio crusher destemmer mengeluarkan roller](marchisio%20crusher%20destemmer%20mengeluarkan%20roller.md)
+* [rotary feed sluice self cleaning raw mill](rotary%20feed%20sluice%20self%20cleaning%20raw%20mill.md)
+* [pajakan perlombongan andhra pradesh](pajakan%20perlombongan%20andhra%20pradesh.md)
+* [perlombongan arang batu di kenya](perlombongan%20arang%20batu%20di%20kenya.md)
+* [bagaimana silinder hidraulik berfungsi untuk vertical roller mills china](bagaimana%20silinder%20hidraulik%20berfungsi%20untuk%20vertical%20roller%20mills%20china.md)
+* [syarikat penghancur sisa konkrit](syarikat%20penghancur%20sisa%20konkrit.md)
+* [emas untuk peralatan perlombongan silika pasir mekanikal](emas%20untuk%20peralatan%20perlombongan%20silika%20pasir%20mekanikal.md)
+* [loji penghancur batu berhampiran bangalore](loji%20penghancur%20batu%20berhampiran%20bangalore.md)
+* [penghancur gyratory dalam industri perlombongan](penghancur%20gyratory%20dalam%20industri%20perlombongan.md)

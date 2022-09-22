@@ -1,0 +1,144 @@
+# merobohkan kilang mengitar semula konkrit di india
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bahagian B Tema 3 Pembangunan Ekonomi dan Impak .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Bahagian B Tema 3 Pembangunan Ekonomi dan Impak .
+Perindustrian Menjadualkan semula pembuangan sisa, mengitar semula Sisa berjadual, membuang Sisa bertoksik di tempat khas. Pembalakan Mengangkut balak dengan menggunakan helikopter. Aktiviti domestik Menyediakan perangkap sampah di sungai, merawat Sisa kumbahan, menyediakan kolam takungan dan memperkasakan program kitar semula.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Geografi Tingkatan Lima - Scribd](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Geografi Tingkatan Lima - Scribd
+GEOGRAFI TINGKATAN LIMA (GEOGRAFI MANUSIA) DISEDIAKAN OLEH: MOHD SUHAIMI BIN MOHD ZAIN FORMAT SPM GEOGRAFI 2010 KERTAS 1 - 2280/1 Masa : 1 ¼ Jam Bentuk / Jenis : Aneka Pilihan Jumlah : 40 Soalan Soalan 1 – 18 (geografi fizikal tingkatan 4) Soalan 19 – 20 (geografi manusia tingkatan 5) Markah : 40 % Tajuk : Tingkatan 4 dan 5 Konstruk : Pengetahuan dan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BANKSOALAN - Gedung Ilmu](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## BANKSOALAN - Gedung Ilmu
+iii) Batu marmar pada batu nesan Malik Ibrahim di Gerisik, Jawa dan Malik al-Salih di pasai mempunyai ciri-ciri India. iv) Kewujudan unsur India dan kebudayaan masyarakat 5) Keseimpulan sejarawan kedatangan Islam menerusi – Pedangang kemudian oleh para ulama.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GEOGRAFI STPM SMK PURUN: Tema Pembangunan .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## GEOGRAFI STPM SMK PURUN: Tema Pembangunan .
+Menjadualkan semula pembuangan sisa, mengitar semula Sisa berjadual, membuang Sisa bertoksik di tempat khas. Pembalakan Mengangkut balak dengan menggunakan helikopter.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Persekitaran 2021 Februari](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Persekitaran 2021 Februari
+Di Amerika Syarikat, orang membuang 14 juta tan pakaian setahun, dan walaupun kitar semula pakaian ada, menurut Newsweek, hanya 0, 1 persen pakaian terpakai yang dikumpulkan oleh organisasi nonprofit dan kitar semula yang sebenarnya akan dikitar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![WordPress](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## WordPress
+Ramai di kalangan murid tidak tahu apa itu kitar semula. Setelah diberi penerangan, barulah mereka sedar bahawa bahan yang terbuang ini boleh dijadikan sumber pendapatan baharu. 3.1.3 KEPENTINGAN PRODUK YANG DIHASILKAN
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kilang kitar semula getah musnah dalam kebakaran | .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Kilang kitar semula getah musnah dalam kebakaran | .
+BUKIT MERTAJAM: Sebuah kilang mengitar semula getah di Juru di sini, musnah dalam kebakaran jam 12.27 tengah malam tadi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![The Scribe A Kadir Jasin: MPM Uji Dasar Umno Dan Pas](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## The Scribe A Kadir Jasin: MPM Uji Dasar Umno Dan Pas
+TAPI ANAK ORANG INDIA YANG KERJA DI ESTET TAK DAPAT DISKAUN! 5. Diputar-lajukan ke hadapan ke tahun 2010. Bukanlah Perdana Menteri dari parti Umno yang menliberalisasikan syarat pelaburan yang tidak lagi mewajibkan penyertaan modal 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![India | Peradaban Kuno](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## India | Peradaban Kuno
+Sejarah India dimulai dari Peradaban Lembah Indus, yang menyebar di bagian barat laut subbenua India, dari tahun 3300 sampai 1700 SM. Peradaban Zaman Perunggu runtuh di pertengahan milenum kedua SM dan diikuti dengan Zaman Besi India. Pada abad ke-6 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nota Geografi Tingkatan 3 [x4e60q2r2yn3]](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Nota Geografi Tingkatan 3 [x4e60q2r2yn3]
+Kebanyakkan kilang di Jepun mengitar semula air buangan. Singapura telah merawat semula air buangan bagi tujuan minuman yang dikenali sebagai NEWater.yang diproses secara 'reverse osmosis' China pula menggunakan air rawatan semula bagi tujuan pertanian, perindustrian dan perbandaran.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kitar semula - Scribd](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## kitar semula - Scribd
+Bagi kitar semula kertas dan plastik, terdapat hubungan dengan bangs a dan jenis rumah responden, kitar semula aluminium dengan jangka masa menetap dan kitar semula kaca dengan umur responden. Secara keseluruhannya, responden yang telah berkah win lebih prihatin da n berkeinginan untuk mengitar semula bahan buangan mereka.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kilang kitar semula dijilat api | Harian Metro](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Kilang kitar semula dijilat api | Harian Metro
+Kuching: Sebuah kilang mengitar semula minyak di Jalan Demak Indah, di sini musnah dalam kebakaran malam tadi. Kejadian berlaku kira-kira jam 8 malam dan bomba mengambil masa kira-kira sembilan jam untuk memadamkan kebakaran.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NOTAGEO FIZIKAL - Blogger](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## NOTAGEO FIZIKAL - Blogger
+Mengitar semula bermaksud memproses atau menggunakan semula bahan buangan seperti kertas bekas kaca atau plastik, tin aluminium, kertas dan cebisan kayu. Kitar semula juga bermaksud proses yang sangat selamat kepada alam sekitar kerana ia dapat mengurangkan tahap pencemaran.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Probiotik EM Effective microorganism: EM Product](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Probiotik EM Effective microorganism: EM Product
+Mengikat nitrogen di atmosfera. Penguraian/pereputan bahan organik dan bahan buangan Menghalang patogen-patogen jahat yang ada dalam tumbesaran Mengitar semula dan menambah kehadiran nutrient dalam tanaman Mengurai dan Memusnahkan sisa-sisa
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Peta Laman - 2021](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Peta Laman - 2021
+Berkebun Di Heat: Pastikan Sejuk Dan Tetap Selamat Petua Untuk Mengenangkan Ekzos Motosikal Berisik Cara Mengekalkan Perlengkapan Bilik Mandi Percuma Membaiki Keretakan Di Jalan Raya Konkrit 5 Perkara Yang Harus Diperhatikan Ketika Membeli
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Si budak hijau Green Life..: January 2013](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Si budak hijau Green Life..: January 2013
+Menara air konkrit ialah pemandangan yang biasa kita lihat di Malaysia terutamanya di institut pengajian tinggi. Kalau nonton filem 3 Idiots, menara air konkrit ialah dimana 3 Idiots dan musuh mereka meletakkan pertaruhan siapa yang paling berjaya selepas keluar dari universiti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Malar Hijau: 2009 - Blogger](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Malar Hijau: 2009 - Blogger
+Di Afrika, industri-industri penenunan telah dibentuk untuk "mengitar semula" beg2 plastik yang ditiup oleh angin, supaya bisa diolah kembali menjadi topi dan beg. Salah satu industri yang lumayan terkenal di sana telah berhasil "mengitar semula" 30 ribu beg plastik setiap bulan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penggunaan Semula - ](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Penggunaan Semula - 
+Kelebihan-kelebihan penggunaan semula adalah : • Pemeliharaan sumber semula jadi Sisa pepejal bukan hanya terhasil apabila pengguna membuang barangan yang tidak diperlukan tetapi ia bermula dari pemprosesan bahan mentah, pengangkutan dan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kajian Semula Kilang "rare earth" Bantu Tangani .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Kajian Semula Kilang "rare earth" Bantu Tangani .
+Kajian Semula Kilang "rare earth" Bantu Tangani Keraguan Umum Jumaat, 22 April 2011 12:00 AM KUALA LUMPUR: Lynas Malaysia Sdn Bhd berkata kajian semula panel bebas terhadap kilang "rare earth" di Gebeng akan membantu menangani kebimbangan orang ramai terhadap aspek kesihatan, keselamatan dan alam sekitar berhubung projek itu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penjagaan Alam Sekitar: Cabaran Dan Pengurusan Sisa .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Penjagaan Alam Sekitar: Cabaran Dan Pengurusan Sisa .
+Mengitar Semula Bahan Buangan Dalam Syarikat Kitar Semula di syarikat-syarikat komersial adalah penting kerana syarikat-syarikat ini merupakan penyumbang utama daripada jumlah sisa buangan. Operasi yang dijalankan oleh syarikat-syarikat dan industri menghasilkan banyak barangan yang boleh dikitar semula seperti daripada kafeteria, stor, gudang simpanan barang, kedai-kedai pencetak dan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kilang kitar semula musnah dalam kebakaran](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Kilang kitar semula musnah dalam kebakaran
+KULAI - Sebuah kilang memproses bahan kitar semula di Kawasan Industri Wangsa Idaman, Taman Scientex di sini musnah dalam kebakaran malam tadi. Ketua Operasi, Penolong Penguasa Bomba Mohd Fauzi Awang berkata, bomba menerima panggilan kecemasan berhubung kejadian itu pada jam 11.33 malam. "Kebakaran membabitkan sebuah bangunan kilang kitar semula.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ALAM SEKITAR: ALAM SEKITAR.](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## ALAM SEKITAR: ALAM SEKITAR.
+8/8/2010· Terdapat satu lagi definsi alam sekitar. Namun ia lebih kepada kefahaman "environmentalisme". Dijelaskan bahawa ia merupakan satu istilah geografi tentang doktrin falsafah yang memberikan penekanan terhadap aspek fizikal alam sekitar seperti keadaan iklim 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Syarak Mengata, Adat Menurut: Januari 2008](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Syarak Mengata, Adat Menurut: Januari 2008
+Tanya dulu diri kita sendiri, adakah kita mengitar semula sampah di rumah kita, di pejabat kita ? Yang saya nampak ada mengamalkan kitar semula ialah makcik-makcik dan pakcik-pakcik berbangsa Cina, pada hujung minggu apabila saya lalu di Dataran Senawang, mereka ini akan mengumpul kertas, tin, botol arak untuk di kitar semula.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ustaz Mokhtar Hj. Shafie: February 2009](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Ustaz Mokhtar Hj. Shafie: February 2009
+Setelah tamat pengajian di Sekolah Pondok Pokok Sena Kepala Batas, melanjutkan pelajaran di India dan seterusnya ke Universiti Al-Azhar, Mesir dalam bidang Pengajian Islam. Pulang ke tanahair pada tahun 1972 dan berkhidmat kepada anak watan di dalam bidang perguruan di SM Tuanku Muhammad, Kuala Pilah Negeri Sembilan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alam Sekitar Tanggungjawab Bersama: 2017](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Alam Sekitar Tanggungjawab Bersama: 2017
+kerja-kerja merobohkan kilang yang dahulunya pernah memproses racun yang berbahaya.  Terdapat banyak lagi tips dan cara untuk kita mengitar semula, atau mengguna semula bahan yang lazimnya kita longgokkan atau buang begitu sahaja dan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SERONOK BELAJAR BAHASA MALAYSIA](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## SERONOK BELAJAR BAHASA MALAYSIA
+Rumah-rumah di kampung ini biasanya adalah jenis setinggan, ianya diperbuat daripada kayu, batu bata dan konkrit. Bagaimanapun, masih terdapat beberapa rumah terbengkalai kerana beberapa penduduk kampung telah berhijrah ke bandar-bandar lain untuk mencari pekerjaan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Peninggalan dan Runtuhnya Peradaban India Kuno](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Peninggalan dan Runtuhnya Peradaban India Kuno
+Peradaban India yang pertama tersebut muncul bersamaan dengan peradaban Mesir Kuno zaman Firaun. Kota Mohenjodaro dan Harappa merupakan pusat peradaban India pada masa lampau. Di mana terletak di lembah Sungai Indus. Baca juga: Peninggalan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![6 usaha kreatif mengitar semula di seluruh dunia | Iluminasi](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## 6 usaha kreatif mengitar semula di seluruh dunia | Iluminasi
+Syarikat ini mengitar semula produk kesihatan/kebersihan diri yang menyerap seperti lampin pakai buang, tuala wanita dan lampin dewasa. Mereka telah mengusahakan kaedah untuk membuang bahan plastik dan fiber daripada produk-produk ini yang kemudian akan digunakan untuk menghasilkan produk baru seperti bahan pembinaan komposit, pasir kumbahan haiwan peliharaan ataupun sistem tiub .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SUN SURIA](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## SUN SURIA
+Contoh Industri Kecil dan Sederhana (IKS) ialah kilang kraf tangan, kilang keropok, perusahaan batik, kilang mi dan lain-lain lagi. Terdapat banyak kepentingan IKS kepada masyarakat dan negara. Salah satu kepentingan IKS ialah dapat meningkatkan ekonomi masyarakat terutamanya penduduk di .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ahli NGO direman bantu siasatan kes bakar kilang - .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Ahli NGO direman bantu siasatan kes bakar kilang - .
+11/5/2019· Seorang ahli pertubuhan bukan kerajaan (NGO) ditahan bagi membantu siasatan berhubung kes khianat kebakaran kilang kitar semula plastik yang berlaku pada 18 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lain - Mas to doc](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Lain - Mas to doc
+Cermin yang dibuat dari tingkap lama. "14. FleaMarket EM WDC 27aug06" oleh Elvert Barnes di bawah CC BY 2. 0 / flipped dan cerah dari asal jika dinding anda membosankan dan terdedah, anda boleh mengitar semula tingkap lama sebagai hiasan dinding
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alam Sekitar: May 2010](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Alam Sekitar: May 2010
+Teknologi lain yang diketengahkan adalah seperti kemampuan sokongan mengitar semula air dan lebih mengutamakan pencahayaan semula jadi bagi meminimumkan pengunaan lampu. Sumber : .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CTU551 - TAMADUN INDIA](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## CTU551 - TAMADUN INDIA
+Masalah kemerosotan ini dapat diatasi atau dipulihkan semula selepas kedatangan dan pertapakan kuasa penjajah khasnya kuasa British di India. Di India Selatan juga pergerakan-pergerakan reformasi menjadi asas kepada pihak British untuk meluluskan 15.4
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [kenalan kilang serbuk strach](kenalan%20kilang%20serbuk%20strach.md)
+* [proses carta aliran uranium perlombongan](proses%20carta%20aliran%20uranium%20perlombongan.md)
+* [apa keuntungan dan ke kurangan roll mill](apa%20keuntungan%20dan%20ke%20kurangan%20roll%20mill.md)
+* [proses perlombongan berlian di congo](proses%20perlombongan%20berlian%20di%20congo.md)
+* [trimline 3550 treadmill ulasan](trimline%203550%20treadmill%20ulasan.md)
+* [penghancur emas terpakai di vietnam](penghancur%20emas%20terpakai%20di%20vietnam.md)
+* [cara menyaring batu kapur](cara%20menyaring%20batu%20kapur.md)
+* [kekosongan mekanikal bhp mining crusher](kekosongan%20mekanikal%20bhp%20mining%20crusher.md)
+* [bahan mentah yang diperlukan untuk melombong tali sawat](bahan%20mentah%20yang%20diperlukan%20untuk%20melombong%20tali%20sawat.md)
+* [proses yang terlibat dalam pemurnian bauksit](proses%20yang%20terlibat%20dalam%20pemurnian%20bauksit.md)

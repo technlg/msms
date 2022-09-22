@@ -1,0 +1,120 @@
+# kilang provender 30 t sehari
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Melaka Blogger](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Melaka Blogger
+# T & C Apply 30% diskaun Kita bagi ..singgah le ke Melaka River Cruise Sebarang pertanyaan bolehlah menghubungi kami di talian seperti berikut : /24 - Pejabat - Kaunter Taman Rempah - Kaunter Muara 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Duh, Molor Bangun Kilang Bikin RI Rugi Rp 14 T Setiap .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Duh, Molor Bangun Kilang Bikin RI Rugi Rp 14 T Setiap .
+Kilang hanya mampu mengolah maksimal 800 ribu sehari, sisanya harus diimpor baik impor bbm maupun minyak mentah," kata dia di Cilacap, akhir pekan lalu. Jika dihitung secara kasar saja, harga minyak dunia di level US$ 65 per barel dikali dengan 600 ribu maka sehari dibutuhkan hingga US$ 40 juta untuk impor."Setahun itu bisa US$ 14 miliar.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![30 Reaksi Kimia Kehidupan Sehari-hari / Kimia | .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## 30 Reaksi Kimia Kehidupan Sehari-hari / Kimia | .
+30- Pemikiran: ia merupakan proses biokimia yang kompleks di mana perbezaan potensi ionik menghasilkan impuls elektrik dari neuron (Ali, 2013). Rujukan Ali, A. (2013, 20 April).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![INDUSTRI PETROKIMIA | CHEMISTCLOPEDIA](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## INDUSTRI PETROKIMIA | CHEMISTCLOPEDIA
+Definisi dan Industri Petrokimia Industri petrokimia adalah industri yang berkembang berdasarkan suatu pola yang mengkaitkan suatu produk-produk industri minyak bumi yang tersedia, dengan kebutuhan masarakat akan bahan kimia atau bahan konsumsi dalam 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bekas pekerja kilang ditahan samun bekas majikan – .](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## Bekas pekerja kilang ditahan samun bekas majikan – .
+"Pengadu yang berusia 50 tahun membuat laporan bahawa peti simpanan wang di kilang berkenaan telah dipecahkan dan kerugian dianggarkan sebanyak RM200,000. "Bertindak atas maklumat, polis berjaya menahan seorang lelaki berusia 59 tahun yang merupakan bekas pekerja kilang berkenaan, sehari selepas kejadian," katanya dalam satu kenyataan, di sini hari ini.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Duh, Molor Bangun Kilang Bikin RI Rugi Rp 14 T Setiap .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Duh, Molor Bangun Kilang Bikin RI Rugi Rp 14 T Setiap .
+Kilang hanya mampu mengolah maksimal 800 ribu sehari, sisanya harus diimpor baik impor bbm maupun minyak mentah," kata dia di Cilacap, akhir pekan lalu. Jika dihitung secara kasar saja, 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Code of Corporate Governance - badaklng](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Code of Corporate Governance - badaklng
+Code of Corporate Governance – Tata Kelola Perusahaan 1 BAGIAN I PENDAHULUAN A. LATAR BELAKANG PT Badak NGL didirikan pada tanggal 26 November 1974 dan dibentuk oleh PERTAMINA dan Huffco Inc, untuk mengoperasikan kilang LNG
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kandungan produk T'Neeq Junior - RI Health Network .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Kandungan produk T'Neeq Junior - RI Health Network .
+Kemam dan hisap 1 tablet 2 kali sehari 30 minit sebelum makan pagi dan malam. T'Neeq adalah suplemen kesihatan yang diformulasikan daripada kombinasi bahan – bahan berkualiti tinggi dari luar negara dan dikeluarkan dari kilang bertaraf GMP (Good Manufacturing Practice ) dan berdaftar dengan NPRA (National Pharmaceutical Regulatory Agency ).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Industri pakaian meningkat selepas tragedi kilang .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Industri pakaian meningkat selepas tragedi kilang .
+pekerja bekerja sehingga 14 hingga 16 jam sehari di beberapa buah kilang di 4,500 di Bangladesh,  30 Afghanistan 13 55,972 49,477 2,459 Myanmar 11 142,147 131,739 3,202 China 10 90,044 85,225 4,636 Brunei 7 199 185 3 Taiwan 1 985 10 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jawatan Kosong Kilang di Senai March 2021 | Indeed](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Jawatan Kosong Kilang di Senai March 2021 | Indeed
+Kilang di Senai Industrial Estate, 81400 Senai, Johor adalah kilang yang kelima yang mula beroperasi sejak 1987 dan telah berjalan lebih daripada 30 tahun. 6 days ago Save job Not interested Is there a problem with this job?
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perluas Kilang Balikpapan, Pertamina Butuh Investasi Rp57 T](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Perluas Kilang Balikpapan, Pertamina Butuh Investasi Rp57 T
+Nicke menjelaskan, untuk membangun RDMP Kilang Balikpapan ini, pihaknya membagi jadi dua tahap (delivery), sebab perusahaan tidak ingin terlalu lama untuk menyelesaikan seluruh pembangunan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pengadaan.id | Kembangkan Kilang Minyak, RI Bisa .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Pengadaan.id | Kembangkan Kilang Minyak, RI Bisa .
+Kembangkan Kilang Minyak, RI Bisa Hemat Rp 13,5 T/Tahun Jakarta - Wakil Menteri Energi dan Sumber Daya Mineral (ESDM) Arcandra Tahar mengatakan pembangunan kilang minyak mendesak. Selain untuk mendukung ketahanan energi nasional, ini juga bisa membuat Indonesia bisa hemat US$ 1 miliar atau sekitar Rp 13,5 triliun per tahun.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TNEEQ – RI Health Network Sdn Bhd](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## TNEEQ – RI Health Network Sdn Bhd
+Kemam dan hisap 1 tablet 2 kali sehari 30 minit sebelum makan pagi dan malam. T'Neeq adalah suplemen kesihatan yang diformulasikan daripada kombinasi bahan – bahan berkualiti tinggi dari luar negara dan dikeluarkan dari kilang bertaraf GMP (Good Manufacturing Practice ) dan berdaftar dengan NPRA (National Pharmaceutical Regulatory Agency ).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kilang Raksasa RI Kini Produksi 1,6 Juta Barel .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Kilang Raksasa RI Kini Produksi 1,6 Juta Barel .
+Kilang Cilacap adalah kilang terbesar di Indonesia dengan kapasitas total 348 ribu barel sehari, atau setara 33,4% dari total kapasitas kilang nasional. Kini, kilang tersebut terintegrasi dengan Proyek Langit Biru Cilacap (PLBC) yang dibangun pada 2015 lalu untuk memproduksi bensin lebih ramah lingkungan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kontrak EPC Diteken, Kilang Balikpapan Baru .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Kontrak EPC Diteken, Kilang Balikpapan Baru .
+RDMP Kilang Balikpapan ini, lanjut Ignatius, akan difokuskan untuk meningkatkan produksi BBM berkualitas dan ramah lingkungan sesuai dengan standar Euro V. "RDMP Kilang Balikpapan, akan mengurangi beban impor solar hingga 17%, karena produksi solar meningkat 23% atau 30 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jawatan Kosong Kilang di Selangor March 2021 | .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Jawatan Kosong Kilang di Selangor March 2021 | .
+Pekerja Kilang, Operator Kilang, Qualitycontrol Inspector and more on Indeed Jawatan Kosong Kilang di Selangor March 2021 | Indeed Skip to Job Postings, Search Close
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Duh, Molor Bangun Kilang Bikin RI Rugi Rp 14 T Setiap .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Duh, Molor Bangun Kilang Bikin RI Rugi Rp 14 T Setiap .
+Kilang hanya mampu mengolah maksimal 800 ribu sehari, sisanya harus diimpor baik impor bbm maupun minyak mentah," kata dia di Cilacap, akhir pekan lalu. Jika dihitung secara kasar saja, harga minyak dunia di level US$ 65 per barel dikali dengan 600 ribu maka sehari dibutuhkan hingga US$ 40 juta untuk impor.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kilang Pertamina Rusak Beruntun, Apa Imbasnya pada .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Kilang Pertamina Rusak Beruntun, Apa Imbasnya pada .
+Kilang ini meliputi dua unit dan mampu mengolah minyak mentah 260 ribu barel per hari. Salah satu produk utamanya adalah solar sebanyak 125 ribu barel per hari. Akibat bolak-balik rusak, produksi harian Kilang Balikpapan turun. Produksi Premium, sehari
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![FGV sasar hasilkan 30,000 liter susu segar sehari](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## FGV sasar hasilkan 30,000 liter susu segar sehari
+Beliau berkata, pengeluaran susu segar di Linggi itu akan menyaksikan pembukaan kilang susu segar baharu dengan kapasiti pemprosesan 30,000 liter sehari. "Kami juga sudah memasang ruang memerah 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Serbu kilang ekspoitasi pekerja bawah umur](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Serbu kilang ekspoitasi pekerja bawah umur
+5/3/2021· Premis adalah bangunan kilang dan beroperasi selama 21 jam sehari dengan pecahan dua syif iaitu bermula dari 8 pagi hingga 5 petang dan bersambung dari 8 malam hingga 6 pagi," katanya.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MENGENAL KILANG PENGOLAHAN MINYAK BUMI (REFINERY DI .](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## MENGENAL KILANG PENGOLAHAN MINYAK BUMI (REFINERY DI .
+48 FORUM TEKNOLOGI Vol. 05 No. 4 Gambar 2.1 Kilang Pengolahan minyak bumi dan kapasitas terpasang No Refinery Unit (RU) Kapasitas Terpasang (Ribu bbl/day) 1 Pangkalan Brandan 5 2 Dumai 170 3 Musi 130 4 Cilacap 384 5 Balikpapan 260 6 Balongan 184
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1klassifieds Mobile](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## 1klassifieds Mobile
+pemandu lori 1 tan. No 43 Lorong Selat Selatan 30, Pandamaran, Port Klang. Tel:  TAMPOI JB mermukan T.I.G Welder & Operator Lelaki dan Fitter. Hubungi  Kerani Am perempuan STPM/Diploma. Mahir 15-03
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Operator Kilang - Gaji Cepat (Bayar Minggu) | .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Operator Kilang - Gaji Cepat (Bayar Minggu) | .
+Isnin - Sabtu: RM48 sehari Ahad: RM58 sehari Elaun (Gaji Harian Takde Elaun) Kehadiran Penuh dan check in setiap hari: RM5 sehari OT Isnin - Sabtu: RM5.30 Sejam Ahad: RM6.50 Sejam 🔧Skop Kerja: Lipat Kotak, Packing, buat nugget/ham/burge patties
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Disinggung Jokowi, Ini Progres 5 Proyek Kilang Pertamina](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Disinggung Jokowi, Ini Progres 5 Proyek Kilang Pertamina
+Menurutnya keterlaluan, selama 30 tahun lebih tak satu kilang pun terbangun. Menjawab kekesalan Jokowi, Pertamina pun menjelaskan saat ini proyek-proyek kilang masih berjalan sesuai rencana. Ada 5 proyek kilang sampai saat ini, terdiri dari 3 kilang pengembangan atau RDMP dan 2 kilang baru atau grass root (GRR).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rugi Miliaran Tiap Hari, Kilang Swasta PHK Ratusan .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Rugi Miliaran Tiap Hari, Kilang Swasta PHK Ratusan .
+Menurut data Dinas Tenaga Kerja Transmigrasi dan Sosial Bojonegoro, sejak PT TWU menyetop produksi pada Januari 2016, para pekerja yang sehari-hari menggantungkan hidupnya pada kilang minyak di Desa Sumengko, Kecamatan Sumengko, itu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mafia Migas Rampok RI Rp 1 T/bulan, Murka Jokowi .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Mafia Migas Rampok RI Rp 1 T/bulan, Murka Jokowi .
+Ia meyakini, di balik impor 800 ribu barel sehari minyak mentah dan BBM, ada pihak-pihak yang mengeruk untung besar. Ini juga salah satu sebab RI susah bangun kilang dalam 30 tahun terakhir. Baca: Pantas Jokowi Murka, Mafia Migas Rampok RI Rp 1 T per 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kilang-minyak-tuban | Bangsa Online - Cepat, Lugas dan .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## kilang-minyak-tuban | Bangsa Online - Cepat, Lugas dan .
+Portal Berita Harian Bangsa Online - Cepat, Lugas dan Akurat TUBAN, BANGSAONLINE - Belasan warga sekitar kilang Tuban yang berada di Desa Wadung, Kecamatan Jenu tiba-tiba menggeruduk Kantor Badan Pertanahan Negara (BPN), Senin (3/8).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [kiln kapur putar china](kiln%20kapur%20putar%20china.md)
+* [penyelesaian untuk bahaya kontruksi di persekitaran](penyelesaian%20untuk%20bahaya%20kontruksi%20di%20persekitaran.md)
+* [wanita dan perlombongan di rhodesia wilayah](wanita%20dan%20perlombongan%20di%20rhodesia%20wilayah.md)
+* [kuari batu di georgia](kuari%20batu%20di%20georgia.md)
+* [pembekal kilang bola simen terpakai di india](pembekal%20kilang%20bola%20simen%20terpakai%20di%20india.md)
+* [penghancur kon yang boleh membuat habuk](penghancur%20kon%20yang%20boleh%20membuat%20habuk.md)
+* [kilang bentonit bukit hitam wyoming](kilang%20bentonit%20bukit%20hitam%20wyoming.md)
+* [data teknikal crawler crawler bergerak](data%20teknikal%20crawler%20crawler%20bergerak.md)
+* [kilang pemeriksaan penghancur mudah alih shanghai](kilang%20pemeriksaan%20penghancur%20mudah%20alih%20shanghai.md)
+* [penghancur kon kepala pendek 4 kaki](penghancur%20kon%20kepala%20pendek%204%20kaki.md)

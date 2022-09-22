@@ -1,0 +1,160 @@
+# fungsi asas kotak menyeterika
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Menyeterika pakaian (48 gambar): lemari dengan laci dan .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Menyeterika pakaian (48 gambar): lemari dengan laci dan .
+Mereka mungkin mengandungi linen, rak buku, rumah tangga kecil, kotak alat tulis, dan pastikan anda mempunyai papan terbina dalam. Untuk kemudahan menyeterika, ketinggian pemakainya tidak boleh melebihi sembilan puluh sentimeter.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prosedur Pencetakan Asas](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Prosedur Pencetakan Asas
+Kotak dialog [Cetak] dipaparkan. Dalam Windows 8/Server 2012, jika anda ingin mencetak dari apl Windows Store, paparkan bar butang capaian di sebelah kanan skrin dan ketik [ Peranti] → pencetak yang anda gunakan → [Cetak].
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pengertian Ketahanan Nasional, Ciri – Ciri, Sifat, Asas .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Pengertian Ketahanan Nasional, Ciri – Ciri, Sifat, Asas .
+Fungsi Ketahanan Nasional Ketahanan nasional berfungsi sebagai doktrin dasar nasional yang bertujuan untuk menjamin tetap terjadinya pola pikir, pola sikap, pola tindak dan pola kerja dalam menyatukan langkah bangsa yang bersifat inter – regional wilayah, inter – sektoral, maupun multi disiplin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![A. PENGERTIAN ASAS-ASAS HUKUM](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## A. PENGERTIAN ASAS-ASAS HUKUM
+Fungsi asas hukum juga di uraikan Achmad Ali yang membagi kedalam beberapa fungsi sebagai berikut: a. Fungsi Taat Asas (konsisten) Fungsi taat asas dari hukum itu adalah bagaimana konsistensi dapat terjamin dalam sistem hukum
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tujuan Utama Dan Fungsi Asas Pembungkusan Produk - .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Tujuan Utama Dan Fungsi Asas Pembungkusan Produk - .
+Fungsi Utama Dan Fungsi Asas Pembungkusan Produk, Pengetahuan Industri Fungsi Utama Dan Fungsi Asas Pembungkusan Produk Sep 07, 2018 Memperkenalkan barang: Dengan menggunakan unsur-unsur pada bungkusan, pengguna akan diberitahu tentang kandungan, jenama dan nama produk produk tersebut. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA 2.1 Konseling 2.1.1 Definisi Konseling - .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## BAB II TINJAUAN PUSTAKA 2.1 Konseling 2.1.1 Definisi Konseling - .
+2.1.3 Asas – Asas Kosenling Dalam penyelenggaraan bimbingan dan konseling selain terdapat fungsi dan prinsip, juga terdapat kaidah-kaidah didalamnya yang dikenal dengan asas-asas bimbingan konseling. Dalam pemenuhan asas-asas tersebut dapat 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1.0 Mengenal Komputer Dan Fungsinya](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## 1.0 Mengenal Komputer Dan Fungsinya
+dan fungsi bagi setiap bahagian 7 kotak – tampalkan setiap kotak dengan nama bahagian-bahagian utama antara muka SCRATCH. Kotak dapat dibina berbantukan fail origami kotak.doc Sampul kertas sebanyak bilangan kumpulan – 1 set keratan sampul
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tetapan Biasa untuk Semua Helaian](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Tetapan Biasa untuk Semua Helaian
+Fungsi ini berguna untuk menyekat kaedah output klien dalam persekitaran pencetak dikongsi. [Butiran] > Kotak Dialog [Butiran Edit dan Pratonton] Membolehkan anda .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGENALAN KEPADA ASAS](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## PENGENALAN KEPADA ASAS
+Fungsi asas yang paling utama adalah untuk memindahkan beban struktur bangunan ke lapisan tanah dibawahnya. Luas permukaan asas dapat diperolehi dari nilai beban per keupayaan galas tanah. • Semakin luas permukaan sesuatu asas, semakin 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ulasan Amazfit GTR 2 Dan GTS 2 – Kesinambungan .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Ulasan Amazfit GTR 2 Dan GTS 2 – Kesinambungan .
+Tidak ketinggalan, terdapat juga fungsi asas lain seperti tetapan untuk notifikasi aplikasi dan panggilan telefon, menjejak lokasi jam, penggera jam dan sebagainya. Meskipun fungsinya di sini sekadar asas sahaja, anda harus berpuas hati dengan aplikasi terpasang yang diberikan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Peralatan jahitan t4 - SlideShare](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Peralatan jahitan t4 - SlideShare
+Peralatan jahitan t4 1. Kaedah Mengajar KPD 5046 Individu Mikroteaching Peralatan Jahitan Nama : Ida Kartini binti Ahmad No Matrik : L Kumpulan : Q Kursus : Ekonomi Rumah Tangga (AT 63D) Nama Pensyarah : En Hairuddin bin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Zareez: Automotif - Blogger](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Zareez: Automotif - Blogger
+Kotak gear terdiri daripada rangkaian gear yang terkandung dalam satu kotak dan dipasang selepas pepasangan klac. Fungsi gear:-- untuk mendapatkan kelajuan yang berbeza dan sesuai mengikut keadaan dan beban pada kenderaan - mewujudkan gear maju
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NOTA RINGKAS MICROSOFT EXCEL - Tripod](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## NOTA RINGKAS MICROSOFT EXCEL - Tripod
+o Pada kotak dialog pilih Count (dalam function name)>OK>dalam kotak dialog Value pilih sel-sel yang hendak dibilang>OK o Bagi lain-lain fungsi analisis statistik seperti Jumlah, sisihan piawaian aturcara lebih kurang sama Cuma pilih mana-mana yang berkenaan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Asas Seni Reka (PSV 1014) | Amaar Hisyam - .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## (PDF) Asas Seni Reka (PSV 1014) | Amaar Hisyam - .
+Unsur Seni & Prinsip Rekaan UNSUR SENI NAMA PELAJAR : AMAAR HISYAM BIN OSMAN NO KAD PENGENALAN : KUMPULAN/UNIT : PSV 1 (ASAS SENI VISUAL) KOD DAN NAMA KURSUS : PSV 1014 NAMA 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mesin pengering dan menyeterika](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Mesin pengering dan menyeterika
+Fungsi tambahan (menyeterika, basuh kering, penyegaran). Pengeluar yang berbeza boleh menggunakan nama yang berbeza untuk fungsi asas dan tambahan, tetapi prinsip kerja mereka akan sama. Program yang sangat penting yang membolehkan anda mengeringkan sesuatu dalam masa yang singkat (40-60 minit) adalah pengeringan cepat .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGURUSAN DIRI Pendidikan Khas Tingkatan 1 Pages .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## PENGURUSAN DIRI Pendidikan Khas Tingkatan 1 Pages .
+Check Pages 101 - 148 of PENGURUSAN DIRI Pendidikan Khas Tingkatan 1 in the flip PDF version. PENGURUSAN DIRI Pendidikan Khas Tingkatan 1 was published by PUSAT SUMBER DIGITAL PPKI SMK ORKID DESA on . Find more similar flip 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prosedur Pencetakan Asas](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Prosedur Pencetakan Asas
+Dalam Windows 8/8.1/Server 2012/Server 2012 R2, apabila mencetak dari apl Windows Store, jika sebelum ini anda telah memilih tetapan yang memerlukan input atau prosedur apabila pencetakan seperti pencetakan selamat, edit + pratonton, pengurusan ID 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proton X50 dilancarkan - bermula RM79k - RM103k - .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Proton X50 dilancarkan - bermula RM79k - RM103k - .
+Model paling asas Proton X50 Standard dijual pada harga RM79,200, diikuti varian Executive dijual pada harga RM84,800, model Premium pula berharga RM93,200, manakala versi tertinggi Proton X50 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fungsi dan Bahan Alatan Jahitan - Membuka kotak](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Fungsi dan Bahan Alatan Jahitan - Membuka kotak
+1) Menggunting fabrik a) b) c) d) 2) Meretas jahitan a) b) c) d) 3) Menggunting benang jahitan a) b) c) d) 4) Jarum jahit tangan a) b) c) d) 5) Jarum jahit mesin a) b) c) d) 6) Mesin Jahit a) b) c) d) 7) Bahan untuk menjahit semua jenis jahitan tangan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BUKU SOALAN LATIHAN PSV SPM Pages 1 - 19 - Flip PDF .](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## BUKU SOALAN LATIHAN PSV SPM Pages 1 - 19 - Flip PDF .
+Check Pages 1 - 19 of BUKU SOALAN LATIHAN PSV SPM in the flip PDF version. BUKU SOALAN LATIHAN PSV SPM was published by cikgutuanlah on . Find more similar flip PDFs like BUKU SOALAN LATIHAN PSV SPM. Download BUKU
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOTAK ACUAN.docx - PEMBINAAN KOTAK .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## KOTAK ACUAN.docx - PEMBINAAN KOTAK .
+Fungsi Kotak Acuan (Formwork) Bentuk binaan konkrit boleh dibuat mengikut sebarang rekaan yang dicipta melalui kegunaan acuan. Dalam pembinaan konkrit, terdapat dua kumpulan acuan yang lazim digunakan iaitu acuan untuk konkrit tuang dahulu dan acuan untuk konkrit tuang disitu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bab 3 - SlideShare](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Bab 3 - SlideShare
+Rajah 3.8(ii) :Kotak bentuk bagi lantai yang telah siap di pasang 3.5.4 KOTAK BENTUK UNTUK DINDING Bagi struktur ini, kotak bentuk bergerak dan memanjat digunakan. Ianyamengandungi papan yang disusun rapat dan diteguhkan lagi dengan perembat danpengikat-pengikat bolt dan nat dipasang menerusi kotak bentuk dinding yangdicadangkan itu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![スライド 1 - Mitsubishi Electric](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## スライド 1 - Mitsubishi Electric
+Asas Kontrol Turutan dihasilkan melalui kombinasi yang berikut. Kontrol berturutan (Sequential control)  Seperti yang ditunjukkan dalam rajah yang berikut, jika kontroller dianggap kotak hitam, isyarat status/penyelesaian dari sasaran kontrol menjadi "input 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jenis-jenis asas (foundation) dalam pembinaan - .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Jenis-jenis asas (foundation) dalam pembinaan - .
+13/10/2020· Asas (Foundation) boleh dikategorikan kepada dua: asas cetek dan asas dalam. Dalam Bahasa Inggeris, kita gunakan frasa shallow foundation dan deep foundation . Fungsi asas ialah untuk memindahkan beban daripada struktur ke tanah.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGERTIAN KEMASAN: Fungsi, Tujuan & Jenis .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## PENGERTIAN KEMASAN: Fungsi, Tujuan & Jenis .
+Pengertian Kemasan – Kemasan memiliki peranan penting pada sebuah produk yang akan dijual. Selain bisa menambah nilai estetika, desain kemasan juga bisa menarik perhatian sekaligus bahan promosi. Selain itu produk yang sudah memasuki proses kemas biasanya juga bisa bertahan lebih lama serta bisa melindungi produk itu sendiri dari bahaya kerusakan saat proses pendistribusian. Untuk lebih 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Institusi sosial: peranan dan fungsi](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Institusi sosial: peranan dan fungsi
+Asas institusi sosial masyarakat termasuk ekonomi, politik, kerohanian, kumpulan keluarga. Peranan institusi ekonomi - menyediakan organisasi ekonomi, tadbir urus dan pembangunan yang berkesan. hubungan-hubungan harta menetapkan sebarang nilai (terutamanya bahan) untuk orang tertentu atau organisasi, yang membolehkan mereka untuk mendapatkan pendapatan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SEL SEBAGAI UNIT ASAS HIDUPAN | JOM BELAJAR ONLINE](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## SEL SEBAGAI UNIT ASAS HIDUPAN | JOM BELAJAR ONLINE
+Bentuk seperti kotak-kotak halus tersebut mengingatkan beliau kepada bilik-bilik kurungan di dalam penjara yang dikenali sebagai 'sel'. Oleh itu, beliau menamakan bentuk seperti kotak-kotak halus tersebut sebagai 'sel-sel' (cells).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alatan dalam kotak pertolongan cemas - SlideShare](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Alatan dalam kotak pertolongan cemas - SlideShare
+PENYEPIT FUNGSI: - mengeluarkan serpihan - menyepit kapas Peringatan: - Pastikan kering dan bersih 6. KAPAS FUNGSI: - membersih luka - membuat alas - melumur ubat 7. ANTISEPTIK FFUNGSI: - - membasuh luka - - membunuh kuman 8. 9.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Meningkatkan kemahiran dalam penjagaan dan penyelenggaraan](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Meningkatkan kemahiran dalam penjagaan dan penyelenggaraan
+beberapa komponen asas seperti aci putar, aci pandu, gear transmisi, klac, unit kerbeda dan sendi semesta. Gear transmisi terdiri daripada rangkaian gear yang terkandung dalam satu kotak dan dipasang selepas pepasangan klac. Fungsi gear transmisi adalah:
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Panduan - Microsoft](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Panduan - Microsoft
+4 Dokumentasi produk Bersama-sama alat kawalan jauh anda, anda menerima Bersedia Untuk Mula ringkas yang menjelaskan fungsi-fungsi asas alat kawalan jauh. Panduan ini menyediakan maklumat lanjut tentang alat kawalan jauh, seperti mengalihkan butang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGENALAN KEPADA ASAS](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## PENGENALAN KEPADA ASAS
+Fungsi asas yang paling utama adalah untuk memindahkan beban struktur bangunan ke lapisan tanah dibawahnya. Luas permukaan asas dapat diperolehi dari nilai beban per keupayaan galas
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perkoperasian - Kemdikbud](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Perkoperasian - Kemdikbud
+Pada materi 1 ini, Anda akan mempelajari konsep koperasi. Materi 1 meliputi pengertian, landasan, asas, fungsi, susunan organisasi, jenis-jenis, peran, dan kekuatan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KOTAK ACUAN.docx - PEMBINAAN KOTAK .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## KOTAK ACUAN.docx - PEMBINAAN KOTAK .
+Definisi Kotak Acuan (Formwork) Kotak acuan atau ' formwork ' merupakan binaan sementara yang biasa digunakan dalam industri pembinaan bagi sesebuah bangunan. Terdapat berbagai jenis bahan yang boleh digunakan untuk membuat kotak acuan iaitu seperti kayu, keluli dan plastik. Kebanyakkan kotak acuan yang digunakan dalam industri pembinaan adalah 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fungsi, Asas dan Prinsip PAUD](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Fungsi, Asas dan Prinsip PAUD
+FUNGSI, ASAS, DAN PRINSIP DASAR PAUD Pada dasarnya PAUD tidak sekedar mendidik dan melakukan pembelajaran saja, tetapi didalamnya juga terdapat fungsi, asas dan prinsip dasar PAUD. anak Usia dini pada masa ini membutuhkan sangat ketat atau sangat super akan namanya pengawasan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alatan asas memasak - Sumber pengajaran](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Alatan asas memasak - Sumber pengajaran
+KAV Asas Pertanian (padankan alatan perkebunan dengan fungsi alatan yang betul) Padankan oleh Suvinialikun89 KRAF ANYAMAN ( BAHAN DAN ALATAN ASAS ) Cari padanan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fungsi, Asas, Prinsip dan Pendekatan dalam .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Fungsi, Asas, Prinsip dan Pendekatan dalam .
+Fungsi, Asas, Prinsip dan Pendekatan dalam Pendidikan Anak Usia Dini 12 Maret 2014 01:44 Diperbarui: 24 Juni 2015 01:02 1429 0 0 Mohon Tunggu Fungsi Pendidikan Anak Usia Dini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![√ Nirmana : Pengertian, Jenis, Unsur, Prinsip, Fungsi, .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## √ Nirmana : Pengertian, Jenis, Unsur, Prinsip, Fungsi, .
+Nirmana bisa juga diartikan sebagai hasil angan-angan dalam bentuk dwimatra, trimatra yang memiliki nilai keindahan. Secara singkat nirmana disebut juga ilmu tatarupa. Dapat kita ketahui bersama bahwa nirmana dibentuk dari dua kata yaitu nir berarti tidak, mana berarti makna, dan apabila digabungkan berarti tidak bermakna atau tidak memiliki makna sama sekali.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [bahagian peralatan dan mesin untuk perlombongan](bahagian%20peralatan%20dan%20mesin%20untuk%20perlombongan.md)
+* [spesifikasi mesin penghancur](spesifikasi%20mesin%20penghancur.md)
+* [faedah bijih besi fosforus tinggi di china](faedah%20bijih%20besi%20fosforus%20tinggi%20di%20china.md)
+* [pengeluar kilang serbuk kuarza](pengeluar%20kilang%20serbuk%20kuarza.md)
+* [pasir layar dan gauteng penghancur batu](pasir%20layar%20dan%20gauteng%20penghancur%20batu.md)
+* [lukisan elektrik simen kilang roller menegak](lukisan%20elektrik%20simen%20kilang%20roller%20menegak.md)
+* [senarai peralatan untuk kilang papan gipsum](senarai%20peralatan%20untuk%20kilang%20papan%20gipsum.md)
+* [pemprosesan bijih besi peralatan rom](pemprosesan%20bijih%20besi%20peralatan%20rom.md)
+* [pengeluar kilang roller menegak di india](pengeluar%20kilang%20roller%20menegak%20di%20india.md)
+* [perlombongan emas skala kecil sudan](perlombongan%20emas%20skala%20kecil%20sudan.md)

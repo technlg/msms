@@ -1,0 +1,152 @@
+# persatuan kuari batu rajasthan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Air Terjun Tanjung Batu musnah - Sinarharian](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Air Terjun Tanjung Batu musnah - Sinarharian
+Foto: Facebook Otai Manjung, Twitter Shakila Schon Gambar kanan: Keadaan terkini kawasan Air Terjun Tanjung Batu yang didakwa kesan penggondolan hutan bagi aktiviti kuari. A MANJUNG - Keindahan alam semula jadi di kawasan Air Terjun Tanjung Batu, Segari di sini musnah apabila aktiviti kuari beroperasi sejak pertengahan tahun lalu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SUMBER BATUAN DAN KUARI | Dewan Negeri Selangor](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## SUMBER BATUAN DAN KUARI | Dewan Negeri Selangor
+BATUAN DAN KUARI Tahun: 2010 Sesi: 1 Isu: Tanah & Sumber Alam Adun: Y.B. Tuan Haji Saari Bin Sungib Kategori: Bertulis Sub Soalan Selain daripada mengusahakan perlombongan pasir, apakah program kerajaan untuk meningkatkan hasil 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Solat hajat bantah projek kuari batu kapur](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Solat hajat bantah projek kuari batu kapur
+BALING- Pondok agama sekitar Baling dan Kulim melakukan solat hajat dan bacaan surah Yasin setiap malam sebagai ikhtiar demi menyelamatkan tanah penduduk dan Gunung Pulai daripada diambil bagi projek kuari batu kapur.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aktiviti kuari musnahkan Air Terjun Tanjung Batu - .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Aktiviti kuari musnahkan Air Terjun Tanjung Batu - .
+Aktiviti kuari di situ, dipercayai dijalankan sebuah syarikat berkaitan kerajaan (GLC) yang turut melakukan pembersiha n hutan dilakukan untuk aktiviti kuari. Timbalan Pengerusi Persatuan Aktivis Sahabat Alam (KUASA), Ismady Radzuan, mendakwa kegiatan itu menimbulka­n kegusaran apabila pokok ditebang tanpa terancang hingga mencacatka­n keindahan landskap air terjun berkenaan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NGO KUASA Anjurkan Latihan Aktivis Alam Sekitar .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## NGO KUASA Anjurkan Latihan Aktivis Alam Sekitar .
+IPOH: Pada Ogos yang lalu, satu program Latihan Aktivis Alam Sekitar (LASAK 7.0) telah berlansung selama dua hari iaitu pada 24 dan 25 Ogos 2019. Program ini bermula pada
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Before And After Pictures Of This Waterfall In Perak Are .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Before And After Pictures Of This Waterfall In Perak Are .
+Air Terjun, Tanjung Batu, Segari Manjung Perak dalam kenangan. Ayuh kita bersama mendesak kerajaan membatalkan pembukaan kuari dlm hutan simpan. .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Harap keputusan tak berat sebelah - SINAR HARIAN](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Harap keputusan tak berat sebelah - SINAR HARIAN
+BALING - Persatuan Alam Sekitar Gunung Pulai, Baling berharap keputusan pertemuan antara semua pihak mengenai kuari pasir batu pada 29 Januari depan tidak berat sebelah. Jurucakap persatuan berkata, projek berkenaan perlu dibatalkan sepenuhnya tanpa ada keputusan menang-menang.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kuari jejaskan alam sekitar - ismaweb](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Kuari jejaskan alam sekitar - ismaweb
+BANGI, 10 Jamadilakhir 1442H, Sabtu – Tidak logik mengatakan air terjun berdekatan Hutan Simpan Segari Melintang, Manjung masih terpelihara dan langsung tidak terjejas. Ini kerana Persatuan Aktivis Sahabat Alam (KUASA) mempunyai rekod berhubung perkara itu dan pernah membuat laporan pada 2017 yang menyatakan sudah ada kerosakan berlaku di kawasan berkenaan. Bahkan persatuan itu .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gunalah khidmat pakar - Sinarharian](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Gunalah khidmat pakar - Sinarharian
+MANJUNG - Persatuan Aktivis Sahabat Alam (Kuasa) menggesa syarikat kuari terlibat melantik pihak berkompetan untuk melakukan kerja-kerja pembersihan dan pemulihan di kawasan Air Terjun Tanjung Batu, Segari. Timbalan Pengerusinya, Ismady Radzuan berkata, kepakaran dalam aspek itu diperlukan bagi mengurangkan impak yang lebih teruk selepas hampir 90 peratus kawasan di situ musnah.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Family Camping Hiking - Sports & Recreation - 32 Photos .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Family Camping Hiking - Sports & Recreation - 32 Photos .
+menerus menarah dan mengondol hutan bagi tujuan projek KUARI BATU. Untuk makluman, pada tahun 2016 beberapa NGO termasuk Persatuan Aktivis Sahabat Alam - KUASA dan penduduk setempat pernah mengadakan bantahan melawan Di sini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jabatan Hutan, JAS diarah sedia laporan kemusnahan air .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Jabatan Hutan, JAS diarah sedia laporan kemusnahan air .
+Keadaan air terjun Tanjung Batu yang musnah dipercayai akibat aktiviti kuari batu di dalam kawasan Hutan Simpan Segari Melintang - GAMBAR HIASAN Oleh .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ | Dabogong](https://github.com/technlg/images/blob/main/18.jpg)</a>
+##  | Dabogong
+PERSATUAN PENGENUT DEWA CHENG TIAN KEONG Jalan Kuari, Batu 3, Jalan Kluang, 83000 Batu Pahat, Johor. : Tel : + 623 Hp : + 2731 Email : hello@dabogong Call Location Jalan Kuari, Batu 3, Jalan Kluang 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Air terjun Tanjung Batu musnah gara-gara .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Air terjun Tanjung Batu musnah gara-gara .
+Menurut persatuan itu, pihak pertubuhan bukan kerajaan (NGO) dengan kerjasama penduduk kampung Sungai Batu, Pantai Remis telah membantah cadangan projek tersebut sejak 2016. "Namun malangnya – apalah kuasa yang kami ada jika dibandingkan dengan keinginan besar kerajaan negeri, syarikat pemaju dan 'kerabat tertentu' ketika itu," dakwanya.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perlu penambahan untuk Sarawak | Borneo Post Online](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Perlu penambahan untuk Sarawak | Borneo Post Online
+mengadakan mesyuarat dengan Persatuan Kuari baru-baru ini mendapati bahawa Sarawak memerlukan 30 juta tan batu kuari dan selain mungkin kekurangan jentera .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Utama](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## Utama
+Pada tahun 2017, SAM pernah menyuarakan kebimbangan apabila Pihak Berkuasa Negeri telah meluluskan kegiatan kuari di sebahagian Kompartmen 13, 14, 15 dan 16, HS Segari Melintang. Bantahan SAM adalah kerana telah terdapat beberapa kawasan kegiatan kuari sedia ada di HS Segari Melintang yang boleh memberi impak kepada ekosistem hutan dan kawasan semulajadi pesisiran .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BERNAMA - Pengkaji warisan temui laluan hubungkan .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## BERNAMA - Pengkaji warisan temui laluan hubungkan .
+7/3/2021· IPOH, 7 Mac -- Kajian sebuah persatuan warisan mendapati, wujudnya laluan yang menghubungkan dua kampung di kawasan selatan Gunung Lanno, Simpang Pulai di sini yang dipercayai digunakan penduduk pada lebih 100 tahun lalu. Pengerusi Persatuan Jurupandu Pelancong Geopark Warisan Alam Semulajadi Perak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Projek kuari ancam Gua Sireh](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Projek kuari ancam Gua Sireh
+Setiausaha Persatuan Penduduk Kampung Dalam Wang, Mohd Zaid Ab Mokti berkata, ini kerana jarak Gua Sireh dan projek kuari hanya kurang dua kilometer walaupun kedua-kedua lokasi terletak di kampung berlainan. Menurutnya, pihak persatuan bimbang 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![[VIDEO] Hutan simpan Segari Melintang digondol demi .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## [VIDEO] Hutan simpan Segari Melintang digondol demi .
+Aktiviti terkini di Hutan Simpan SEGARI MELINTANG, apabila si rakus terus menerus menarah dan mengondol hutan bagi tujuan projek KUARI BATU. Untuk makluman, pada tahun 2016 beberapa NGO termasuk Persatuan Aktivis Sahabat Alam – KUASA dan penduduk setempat pernah mengadakan bantahan melawan pembalakan di kawasan ini.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Walaupun bukan air terjun, kemusnahan berlaku perlu .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Walaupun bukan air terjun, kemusnahan berlaku perlu .
+Semalam, Exco Perak berkata air terjun Tanjung Batu Teluk Sera di Segari, Beruas masih terpelihara dan tidak terjejas kerana ia bukan sebahagian daripada tapak kuari di Hutan Simpan Segari Melintang.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![JAS ambil tindakan pihak cemar kawasan Air Terjun .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## JAS ambil tindakan pihak cemar kawasan Air Terjun .
+Manjung: Jabatan Alam Sekitar (JAS) akan mengambil tindakan terhadap pihak yang melakukan aktiviti kuari di kawasan Air Terjun Tanjung Batu, Segari di sini, kerana melanggar syarat kelulusan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Before And After Pictures Of This Waterfall In Perak Are .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Before And After Pictures Of This Waterfall In Perak Are .
+Air Terjun, Tanjung Batu, Segari Manjung Perak dalam kenangan. Ayuh kita bersama mendesak kerajaan membatalkan pembukaan kuari dlm hutan simpan. Majlis Tanah Negara 2014 sudah buat keputusan, tak boleh ada kuari dalam hutan simpan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![JAS ambil tindakan syarikat kuari jejas Air Terjun Tanjung .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## JAS ambil tindakan syarikat kuari jejas Air Terjun Tanjung .
+MANJUNG: Jabatan Alam Sekitar (JAS) Perak mengesahkan pihak yang menjalankan aktiviti kuari sehingga merosakkan kawasan Air Terjun Tanjung Batu, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sudah lapor 'kerosakan' di Air Terjun Tanjung Batu sejak .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Sudah lapor 'kerosakan' di Air Terjun Tanjung Batu sejak .
+Ismady Radzuan melihat aliran air sungai di kawasan Air Terjun Tanjung Batu, Segari di  tidak terjejas berikutan ia bukan sebahagian daripada tapak kuari di Hutan Simpan Segari Melintang 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">!['Perak perlu pulihara Gunung Lanno dari lombong kuari'](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## 'Perak perlu pulihara Gunung Lanno dari lombong kuari'
+Warisan semulajadi Lembah Kinta itu terjejas akibat letupan dari kuari. Gunung Lanno, antara gunung terbesar di Lembah Kinta, Perak yang dilaporkan memiliki kira-kira 36 gua batu kapur yang cantik 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penduduk Baling bersatu tolak operasi kuari Gunung .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Penduduk Baling bersatu tolak operasi kuari Gunung .
+BALING - Hampir 1,300 tandatangan penduduk yang membantah projek kuari batu kapur di Gunung Pulai berjaya dikumpulkan semalam melalui Majlis Kenduri Rakyat dan Kempen Selamatkan Gunung Pulai. "Persatuan-persatuan ini lebih arif dengan kawasan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Family Camping Hiking - Sports & Recreation - 32 .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Family Camping Hiking - Sports & Recreation - 32 .
+menerus menarah dan mengondol hutan bagi tujuan projek KUARI BATU. Untuk makluman, pada tahun 2016 beberapa NGO termasuk Persatuan Aktivis Sahabat Alam - KUASA dan penduduk setempat pernah mengadakan bantahan melawan Di sini 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aktiviti Kementerian/Jabatan/Agensi](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Aktiviti Kementerian/Jabatan/Agensi
+G.N. 505 of 1930 melalui Pejabat Pemungut Hasil Tanah di daerah kepada pengusaha kuari batu untuk membolehkan aktiviti kuari batu dijalankan. Bagi tahun 2010 hingga 2012, sejumlah RM12.87 juta telah berjaya dikutip daripada pengusaha kuari batu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penduduk Baling bersatu tolak operasi kuari Gunung Pulai](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Penduduk Baling bersatu tolak operasi kuari Gunung Pulai
+BALING - Hampir 1,300 tandatangan penduduk yang membantah projek kuari batu kapur di Gunung Pulai berjaya dikumpulkan semalam melalui Majlis Kenduri Rakyat dan Kempen Selamatkan Gunung Pulai. "Persatuan-persatuan ini lebih arif dengan kawasan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hutan Simpan Segari: Banyak lagi kerosakan mungkin .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Hutan Simpan Segari: Banyak lagi kerosakan mungkin .
+IPOH - Persatuan Aktivis Sahabat Alam (Kuasa) yakin ada banyak lagi kesalahan dan kerosakan alam ditemui sekiranya pemeriksaan terperinci dilakukan di kawasan Hutan Simpan Segari Melintang di Manjung. Timbalan Presidennya, Ismady Radzuan berkata 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kemusnahan Air Terjun Tanjung Batu: Permit kontraktor .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Kemusnahan Air Terjun Tanjung Batu: Permit kontraktor .
+Pada Ahad, Astro AWANI menerusi Persatuan Aktivis Sabahat Alam (Kuasa) mendedahkan kemusnahan alam semula jadi membabitkan kawasan air terjun tercemar didakwa berpunca daripada aktiviti kuari. Timbalan Pengerusi Kuasa, Ismady Radzuan berharap aktiviti kuari di Hutan Simpan Segari Melintang, yang berstatus Hutan Simpanan Kekal (HSK) dihentikan segera.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pengkaji temukan laluan zaman purba berusia lebih 100 .](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Pengkaji temukan laluan zaman purba berusia lebih 100 .
+7/3/2021· Ipoh: Kajian sebuah persatuan warisan mendapati, wujudnya laluan zaman purba yang menghubungkan dua kampung di kawasan selatan Gunung Lanno, Simpang Pulai di .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Contact Us | Dabogong](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## Contact Us | Dabogong
+Jalan Kuari, Batu 3, Jalan Kluang, 83000 Batu Pahat, Johor. : Tel : + 623 Hp : + 2731 Email : hello@dabogong
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kerajaan Negeri Arah Aktiviti Di Kawasan Air Terjun Batu .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Kerajaan Negeri Arah Aktiviti Di Kawasan Air Terjun Batu .
+IPOH, 18 Jan – Kerajaan negeri mengarahkan sebarang kerja-kerja termasuk aktiviti kuari di kawasan Air Terjun Tanjung Batu Teluk Sera, Segari di Pantai Remis, Beruas dihentikan sementara. Menteri Besar Datuk Saarani Mohamad berkata arahan itu dikeluarkan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![JAS ambil tindakan pihak cemar kawasan Air Terjun .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## JAS ambil tindakan pihak cemar kawasan Air Terjun .
+Manjung: Jabatan Alam Sekitar (JAS) akan mengambil tindakan terhadap pihak yang melakukan aktiviti kuari di kawasan Air Terjun Tanjung Batu, Segari di sini, kerana melanggar syarat kelulusan Laporan Penilaian Alam Sekitar (EIA).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PSR: 'Kerajaan penjajah' jadikan rakyat 'hamba abdi'](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## PSR: 'Kerajaan penjajah' jadikan rakyat 'hamba abdi'
+22/2/2021· BALIK PULAU: Kerajaan DAP Negeri Pulau Pinang jelas berwajah 'kerajaan penjajah' yang hakikatnya menjadikan rakyat bawahan seperti 'hamba abdi' semata-mata untuk mencapai matlamat politik mereka. Pesuruhjaya PAS Pulau Pinang, Ustaz .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [hammel rock crusher youtube](hammel%20rock%20crusher%20youtube.md)
+* [mesin pengisar di ludhiana](mesin%20pengisar%20di%20ludhiana.md)
+* [batu penghancur batu terpakai usa](batu%20penghancur%20batu%20terpakai%20usa.md)
+* [pembekal penghancur kon dolomit mudah alih di indonessia](pembekal%20penghancur%20kon%20dolomit%20mudah%20alih%20di%20indonessia.md)
+* [jenis penghancur batu mudah alih](jenis%20penghancur%20batu%20mudah%20alih.md)
+* [komponen penghancur kon dan fungsinya](komponen%20penghancur%20kon%20dan%20fungsinya.md)
+* [kuari simen di tanjung barat](kuari%20simen%20di%20tanjung%20barat.md)
+* [emas proses penghancur emas](emas%20proses%20penghancur%20emas.md)
+* [mtw molino fabrikantes](mtw%20molino%20fabrikantes.md)
+* [kilang penghancur batu dibuat dengan kos ayam belanda](kilang%20penghancur%20batu%20dibuat%20dengan%20kos%20ayam%20belanda.md)

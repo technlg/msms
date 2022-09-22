@@ -1,0 +1,160 @@
+# republik simen telah menanam bakau
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BATAS WILAYAH NEGARA KESATUAN REPUBLIK .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## BATAS WILAYAH NEGARA KESATUAN REPUBLIK .
+Rumah yang kalian tempati juga tentu mempunyai batas, begitu juga wilayah Negara Kesatuan Republik Indonesia.  utaranya ini sangat rawan dan memprihatinkan.Pemerintah melalui DISHIDROS TNI baru-baru ini telah menanam 1000 pohon bakau termasuk 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bersama DLH Natuna, Lanud RSA Tanam Mangrove](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Bersama DLH Natuna, Lanud RSA Tanam Mangrove
+Dalam upaya mencegah terjadinya abrasi dan penyelamatan ekosistem lingkungan serta melestarikan pantai di wilayah Kabupaten Natuna, Lanud Raden Sadjad
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Benteng Hutan Bakau Tak Bisa Sendirian Melawan Abrasi .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## Benteng Hutan Bakau Tak Bisa Sendirian Melawan Abrasi .
+Mereka sadar ancaman abrasi telah mengikis daratan perkampungan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penanaman Raya Bakau Toyota Forest Libatkan 1.000 .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Penanaman Raya Bakau Toyota Forest Libatkan 1.000 .
+Sebanyak 100 ribu pohon bakau ditanam di kedua kota tersebut untuk menumbuhkan biodiversity atau keanekaragaman hayati dan sebagai penyerap unsur karbon di udara. Dengan penanaman di Karawang dan Semarang ini, Grup Toyota Indonesia telah menanam 1.3 juta pohon bakau yang tersebar di sepanjang pantai utara Pulau Jawa.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LPPM](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## LPPM
+UT telah menanam pohon dari tahun 2011 sampai dengan 2013 sejumlah 234.000 pohon yang terdiri dari 87.000 pohon tanaman keras sesuai dengan jenis tanaman setempat dan 147.000 pohon mangrove (bakau) untuk memulihkan kondisi lahan pantai yang 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thomas Heri Wahyono, Pionir Konservasi Mangrove .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Thomas Heri Wahyono, Pionir Konservasi Mangrove .
+Selain itu, sejak 2009 silam, Pertamina juga telah menyalurkan bantuan bibit sebanyak 1 juta pohon melalui program corporate social responsibility (CSR). Hingga 2018 ada 35 jenis pohon bakau yang teridentifikasi dan sudah mencapai 1.490.000 pohon yang ditanam.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eksistensi Hutan Bakau sebagai Penangkal Malaria | .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Eksistensi Hutan Bakau sebagai Penangkal Malaria | .
+Melindungi hutan bakau bukan tanggung jawab satu atau dua orang, tapi tanggung jawab kita semua. Banyak hal yang bisa kita lakukan, mulai dari tidak membuang sampah sembarangan, menyebarkan kesadaran, dan menanam bibit bakau.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tanam 2.020 Batang Mangrove di Bandar Bakau Dumai, .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## Tanam 2.020 Batang Mangrove di Bandar Bakau Dumai, .
+Gubernur Riau Syamsuar saat menanam pohon bakau di Bandar Bakau Kota Dumai, Senin (3/8/2020) SUARAHULUBALANG--Gubernur Riau Syamsuar menghadiri penanaman 2.020 batang mangrove di Bandar Bakau Kota Dumai Jalan Pemuda Laut Kelurahan Pangkalan Sesai Kecamatan Dumai Barat.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pohon Mangrove Segera Ditanam di Kawasan Kali .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Pohon Mangrove Segera Ditanam di Kawasan Kali .
+Bibit-bibit mangrove itu akan ditanam di atas lumpur sisa sampah di Kali Adem Wednesday, 12 Rajab 1442 / 24 February 2021
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![IBU NEGARA IRIANA JOKOWI CAPEK-CAPEK MENANAM .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## IBU NEGARA IRIANA JOKOWI CAPEK-CAPEK MENANAM .
+Pentingnya menjaga Kelestarian Hutan Mangrove (Bakau) adalah tugas dan tanggung-jawab kita bersama seluruh anak bangsa tanpa terkecuali, Pemerintah Daerah dan Pusat yang lagi giat-giatnya Mencanangkan Program Penanaman kembali guna Pelestarian
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kado Ultah Jimin BTS dari Army Indonesia: 8.735 Pohon .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Kado Ultah Jimin BTS dari Army Indonesia: 8.735 Pohon .
+Penggemar BTS, ARMY Indonesia, memberi hadiah ramah lingkungan untuk Jimin. Mereka berjanji menanam ribuan pohon bakau untuk membantu desa-desa yang terancam tenggelam.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pantai Jebu Bembang Jadi Puncak Kegiatan Semarak Hari .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Pantai Jebu Bembang Jadi Puncak Kegiatan Semarak Hari .
+24/8/2020· REPUBLIKA.CO.ID, SUNGAI BULUH -- Masih dalam rangka menyemarakkan kegiatan Hari Bakau Sedunia, Gubernur Kepulauan Bangka Belitung (Babel), Erzaldi Rosman, kembali melakukan penanamam bakau. Kali ini penanaman dilakukan di Pantai Jebu Bembang, Desa Sungai Buluh, Jebus, Kabupaten Bangka Barat, Senin (24/8).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Profil | ANDY PIO FILES](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Profil | ANDY PIO FILES
+Ia berusaha untuk menjaga kelestarian hutan bakau dengan cara terus menanam dan menanam lagi ratusan ribu anakan bakau pada lahan yang masih kosong. Dengan cara yang telah dirintisnya sejak tahun 1993 yang lalu, hutan bakau di Ndete pun kini berubah menjadi tempat berlindung ribuan burung yang terdiri dari berbagai jenis.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Benteng Hutan Bakau Tak Bisa Sendirian Melawan .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Benteng Hutan Bakau Tak Bisa Sendirian Melawan .
+Mereka sadar ancaman abrasi telah mengikis daratan perkampungan dan karena itu mereka menanam bakau. Kami bertemu Sanusi, Ketua RT Desa Pantai Bahagia, yang tengah mengikat potongan batang-batang bambu. Ia menargetkan 1.000 batang bambu 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cara Menanam Pohon Bakau Yang Tepat by. .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Cara Menanam Pohon Bakau Yang Tepat by. .
+Dengan menanam pohon bakau maka anda telah melakukan sebuah upaya positif untuk menyelamatkan lingkungan. Judul Artikel: Cara Menanam Pohon Bakau Yang Tepat Rating: 100% based on 99998 ratings. 5 user reviews.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SKEMA JAWAPAN BUKU GEOGRAFI TING 4 PBD 2020-Flip .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## SKEMA JAWAPAN BUKU GEOGRAFI TING 4 PBD 2020-Flip .
+View flipping ebook version of SKEMA JAWAPAN BUKU GEOGRAFI TING 4 PBD 2020 published by jmay abdul kadir on . Interested in flipbooks about SKEMA JAWAPAN BUKU GEOGRAFI TING 4 PBD 2020? Check more flip ebooks related to 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penanaman Seribu Pohon Bakau oleh TSA Medan - .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Penanaman Seribu Pohon Bakau oleh TSA Medan - .
+Waktu yang bagus untuk menanam pohon bakau adalah dipagi hari, sehingga sekitar pukul 07.00 WIB para scholars bergerak ke lokasi penanaman pohon bakau yaitu dipinggir pantai (11/06). Agar pohon bakau tumbuh dengan baik, harus ditanam di tanah
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Menitip Asa di Hutan Mangrove Tongke-Tongke : .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Menitip Asa di Hutan Mangrove Tongke-Tongke : .
+Hal itu sudah dibuktikan dengan keberadaan hutan mangrove (bakau) Tongke-Tongke di Desa Tongke-Tongke, Kecamatan Sinjai Timur, Kabupaten Sinjai, Sulawesi Selatan. Kawasan hijau seluas 173,5 hektare yang terletak sekitar 7 kilometer dari pusat kota Sinjai ini merupakan hutan mangrove terluas dan terapat di Indonesia.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nelayan Karawang Tanam Mangrove Langka di Pantai .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Nelayan Karawang Tanam Mangrove Langka di Pantai .
+Sahari dan puluhan nelayan di Pasir Putih menanam berbagai jenis pohon bakau sejak 3 tahun lalu. Selain jenis Api api dan Rhizophora, nelayan juga menanam bakau jenis bruguiera cyilindrica yang 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ajak Pelajar, Toyota Tanam 200 Ribu Pohon Bakau di.](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Ajak Pelajar, Toyota Tanam 200 Ribu Pohon Bakau di.
+Dengan penanaman di Karawang dan Semarang ini, Grup Toyota Indonesia telah menanam 1.3 juta pohon bakau yang tersebar di sepanjang pantai utara Pulau Jawa. Selain Karawang dan Semarang, lokasi penanaman Kepulauan Seribu, Bekasi, Cilamaya, ditambah dengan penanaman di Bantul, Demak, Surabaya, serta Banyuwangi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tanam Bakau, Toyota Libatkan Seribu Pelajar | Republika .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Tanam Bakau, Toyota Libatkan Seribu Pelajar | Republika .
+Dengan penanaman di Karawang dan Semarang ini, Grup Toyota Indonesia telah menanam 1,3 juta pohon bakau yang tersebar di sepanjang pantai utara Pulau Jawa. Lokasi penanaman termasuk Kepulauan Seribu, Bekasi, Karawang, Cilamaya, dan Semarang, ditambah dengan penanaman di Bantul, Demak, Surabaya, serta Banyuwangi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mitigasi Kultural Sangat Penting | Republika ID](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Mitigasi Kultural Sangat Penting | Republika ID
+Kalau mitigasi struktural bisa menanam pohon bakau atau pohon yang punya akar kuat di pinggir pantai. Seperti cemara udang, pohon waru, pohon mahoni, pohon sukun yang punya akar kuat. Kalau disiapkan lebih awal, masyarakat lebih siap dan kita bisa mengurangi risiko seminimal mungkin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kado Ultah Jimin BTS dari Army Indonesia: 8.735 Pohon .](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Kado Ultah Jimin BTS dari Army Indonesia: 8.735 Pohon .
+Mereka berjanji menanam ribuan pohon bakau untuk membantu desa-desa yang terancam tenggelam. Menjelang ulang tahun ke-26 anggota BTS tersebut pada 13 Oktober, sebuah proyek penggalangan dana bertajuk "1.000 Pohon untuk Jimin BTS (Proyek Ulang Tahun Jimin)", menghasilkan dana untuk menanam dan memelihara 8.735 pohon di Desa Bedono, Jawa Tengah.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Palu : 2 tahun setelah tsunami, 500 keluarga nelayan .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Palu : 2 tahun setelah tsunami, 500 keluarga nelayan .
+Terakhir, proyek ini juga mencakup tindakan untuk menanam kembali pohon bakau, ekosistem yang mampu mengurangi kekuatan gelombang hingga seperlimanya pada saat terjadi tsunami. Penelitian jenis mangrove yang sesuai kini sudah selesai dan penanaman pertama akan dilakukan pada awal tahun 2021, di penghujung musim hujan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Warga Tanam 36 Ribu Bakau di Pesisir Pesawaran | .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Warga Tanam 36 Ribu Bakau di Pesisir Pesawaran | .
+Monday, 10 Rajab 1442 / 22 February 2021
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Menitip Asa di Hutan Mangrove Tongke-Tongke](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Menitip Asa di Hutan Mangrove Tongke-Tongke
+Hal itu sudah dibuktikan dengan keberadaan hutan mangrove (bakau) Tongke-Tongke di Desa Tongke-Tongke, Kecamatan Sinjai Timur, Kabupaten Sinjai, Sulawesi Selatan. Kawasan hijau seluas 173,5 hektare yang terletak sekitar 7 kilometer dari pusat kota Sinjai ini merupakan hutan mangrove terluas dan terapat di Indonesia.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gambar diambil dari: Andri Irawan Fotopages](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Gambar diambil dari: Andri Irawan Fotopages
+DISHIDROS TNI telah menanam 1000 pohon bakau, melakukan reklamasi dan telah melakukan pemetaan ulang di pulau ini, termasuk pemindahan Suar Nipa (yang dulunya tergenang air) .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TOYOTA GRUP DI INDONESIA TANAM SATU JUTA BAKAU](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## TOYOTA GRUP DI INDONESIA TANAM SATU JUTA BAKAU
+Dengan penanaman ini, Grup Toyota di Indonesia telah menanam sekitar satu juta pohon bakau di sepanjang pantai utara Jawa sejak tahun 2012 termasuk di .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGENDALIAN KERUSAKAN LINGKUNGAN PERMUKIMAN KAWASAN PANTAI .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## PENGENDALIAN KERUSAKAN LINGKUNGAN PERMUKIMAN KAWASAN PANTAI .
+gelombang dan menanam tumbuhan pereduksi ombak di sekitar pantai (biasanya hutan bakau). Peristiwa pasang surut turut pula mempengaruhi garis pantai, meskipun kadarnya kecil dibanding ombak dan arus laut. Pasang surut berpengaruh
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cikgu Kimi : Proses- proses awal membuat rumah .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Cikgu Kimi : Proses- proses awal membuat rumah .
+3. Menanam cerucuk kita faham dalam bahasa orang putih iaitu Piling.Kalau kaya, boleh piling simen. Kalau tak berduit macam saya, boleh piling kayu bakau. Jika tidak silap saya, kedalaman piling rumah saya adalah lebih kurang 16 kaki ke dalam tanah. Satu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Hutan Toyota Hijaukan Pantai Utara Jawa](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Hutan Toyota Hijaukan Pantai Utara Jawa
+PT. Toyota Motor Manufacturing Indonesian hari ini melakukan penanaman 230.000 pohon bakau di Pantai Utara Kabupaten Karawang. PT. Toyota Motor Manufacturing Indonesian
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGEMBANGAN PARIWISATA BAHARI DI PULAU GUSUNG .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## PENGEMBANGAN PARIWISATA BAHARI DI PULAU GUSUNG .
+menanam bakau dan sebagainya. Di pulau ini ada banyak tumbuhan hijau yang akan membuat suasana menjadi lebih sejuk serta akses yang mendukung. Oleh karenanya, tidak salah jika wiasatawan memilih pulau ini sebagai tujuan wisata pulau.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Berkah Hutan Mangrove | Republika Online](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## Berkah Hutan Mangrove | Republika Online
+BPSPL Denpasar bersama masyarakat pesiri di Kecamatan Sekotong sudah menanam sebanyak 120.000 bibit pohon bakau bersama masyarakat dan mereka berkomitmen merawat tumbuh besar, termasuk yang sudah ditanam secara mandiri sejak beberapa
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Eksploitasi Hutan mangrove di Bali : Mongabay Readers](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Eksploitasi Hutan mangrove di Bali : Mongabay Readers
+Dalam catatan, Bali telah mengalami tujuh kali tsunami. Rata-rata skema kejadiannya dalam 25 tahun yakni: pada Tahun 1818, 1848, 1917, 1925, 1930, 1985, dan 1994. Karena itu, perlindungan pantai secara alami dengan hutan mangrove menjadi solusi paling .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perjuangan menentang hakisan pantai | Media .](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Perjuangan menentang hakisan pantai | Media .
+Dibina pada tahun 2016 oleh pihak berkuasa bandar Bangkok, projek tersebut setakat ini telah menanam semula 84 ekar bakau di seluruh negara itu. Wason berharap projeknya kali ini mencapai kejayaan. Hampir 10 tahun yang lalu, penasihat kerajaan Thanawat telah membantu penduduk di Samut Chin untuk menanam semula pokok-pokok bakau namun beberapa kawasan adalah terlalu jauh .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pesona Mangrove Tapak Semarang | Omnduut](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Pesona Mangrove Tapak Semarang | Omnduut
+Jika teman sebelah mau menanam juga, pastikan kasih jarak antara 1 sd 1,5 meter dari bakau yang telah kita tanam. Mudah sekali! Ah, mudah-mudahan bakau yang kami tanam dapat tumbuh besar dan dapat bermanfaat bagi Pulau Tirang, ya. Amin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Puluhan Ribu Tanaman Mangrove Terancam Hilang | .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## Puluhan Ribu Tanaman Mangrove Terancam Hilang | .
+Perusahaan yang membabat hutan mangrove harus mengganti menanam bakau dengan lahan dua kali lipat terlebih dulu dari luasan hutan mangrove yang dibabat tersebut. Perusahaan yang akan membabat hutan bakau seluas lima hektare tersebut lanjut
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [merendahkan tanaman cil](merendahkan%20tanaman%20cil.md)
+* [pengeluar mesin cone crusher i asia](pengeluar%20mesin%20cone%20crusher%20i%20asia.md)
+* [kelebihan penempatan semula hasil daripada aktiviti perlombongan](kelebihan%20penempatan%20semula%20hasil%20daripada%20aktiviti%20perlombongan.md)
+* [penghancur rahang loji kitar semula konkrit](penghancur%20rahang%20loji%20kitar%20semula%20konkrit.md)
+* [kilang arang batu di bilaspur](kilang%20arang%20batu%20di%20bilaspur.md)
+* [conveyor crusher equipment indonesia second hand](conveyor%20crusher%20equipment%20indonesia%20second%20hand.md)
+* [proses pembuatan power calsite](proses%20pembuatan%20power%20calsite.md)
+* [peralatan perlombongan ethereum terbaik](peralatan%20perlombongan%20ethereum%20terbaik.md)
+* [pemasangan batu kapur grizzly](pemasangan%20batu%20kapur%20grizzly.md)
+* [proses perlombongan di afrika selatan](proses%20perlombongan%20di%20afrika%20selatan.md)

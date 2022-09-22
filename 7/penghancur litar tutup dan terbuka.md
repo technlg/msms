@@ -1,0 +1,132 @@
+# penghancur litar tutup dan terbuka
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penghancuran Yerusalem, dan "Kelompok Para Nabi" | .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Penghancuran Yerusalem, dan "Kelompok Para Nabi" | .
+Legiun Romawi mengepung Yerusalem dan sepertinya hampir berhasil mendudukinya. Tiba-tiba, Gallus menarik mundur pasukannya. Menurut sejarawan gereja Eusebius, orang Kristen di Yudea memanfaatkan kesempatan ini untuk lari ke Pella, sebuah kota di wilayah pegunungan Dekapolis.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cara membuat litar | Ensiklopedia | February 2021](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Cara membuat litar | Ensiklopedia | February 2021
+Ini tidak perlu, tetapi menunjukkan litar terbuka dan tertutup dengan baik. Langkah-langkah Kaedah 1 dari 3: Gunakan Bateri Skru bola lampu ke soket. Pemegang lampu adalah peranti yang direka untuk menahan bola lampu. Ia juga mempunyai dua terminal
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pembiakan Effective Microorganisme - Cyber extension](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Pembiakan Effective Microorganisme - Cyber extension
+- Pada hari ketiga dan selanjutnya tutup jangan terlalu rapat dan diaduk setiap hari kurang lebih 10 menit. - Setelah 3-4 hari bakteri sudah dapat diambil dengan disaring, kemudian disimpan dalam botol yang terbuka atau ditutup jangan terlalu rapat botol-botol 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![7. litar elektrik - SlideShare](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## 7. litar elektrik - SlideShare
+Litar Mudah 2. Litar Tidak Lengkap 3. Litar Terbuka 4. Litar Pintas 5. Litar Siri 6. Litar Selari 7. Litar selari-siri 1. LITAR MUDAH Litar yang mengandungi beberapa rintangan dalam siri, selari dan gabungan siri-selari dan boleh dianalisakan dengan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PERANTI ELEKTRONIK - Match up - Wordwall](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## PERANTI ELEKTRONIK - Match up - Wordwall
+suis tekan tutup - berfungsi apabila punat suis ditekan, litar akan tertutup dan arus dapat mengalir, suis mikro - bertindak sebagai suis tekan buka dan suis tekan tutup, suis tekan buka - berfungsi apabila punat suis ditekan, litar akan terbuka dan arus terputus, perintang peka cahaya - peranti yang peka terhadap cahaya, penderia pergerakan - mengesan pergerakan haba yang dihasilkan oleh 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PERANTI ELEKTRONIK - Padankan - Wordwall](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## PERANTI ELEKTRONIK - Padankan - Wordwall
+suis tekan tutup - berfungsi apabila punat suis ditekan, litar akan tertutup dan arus dapat mengalir, suis mikro - bertindak sebagai suis tekan buka dan suis tekan tutup, suis tekan buka - berfungsi apabila punat suis ditekan, litar akan terbuka dan arus terputus 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ciri Litar Terbuka, Bagaimana Ia Berfungsi, Bagaimana .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Ciri Litar Terbuka, Bagaimana Ia Berfungsi, Bagaimana .
+Litar terbuka adalah litar elektrik di mana keamatan arus elektrik tidak mengalir, disebabkan gangguan laluan peredaran yang sama. Seperti namanya, ia adalah pemasangan elektrik yang tidak ditutup. Ini menunjukkan bahawa kuasa elektrik tidak dapat diangkut
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![7 Makanan Penghancur Lemak](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## 7 Makanan Penghancur Lemak
+Kacang kenari kaya akan asam lemak Omega-3 dan serat yang dapat membuat kita kenyang lebih lama dan menjaga kesehatan sel-sel tubuh. Para ilmuwan dari Australia menemukan bahwa relawan yang mengonsumsi 8-10 kacang kenari setiap hari berat badannya lebih cepat turun dibandingkan dengan relawan yang tidak mengonsumsi kacang kenari.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penghancur Kon | Peralatan Penghancuran Agregat | .](https://github.com/technlg/images/blob/main/26.jpg)</a>
+## Penghancur Kon | Peralatan Penghancuran Agregat | .
+Ia berupaya menghasilkan output yang mencapai t/h dalam keadaan litar terbuka. Aplikasi Bahan yang sesuai: batu granit, batu basalt, batu kerakal, bijih besi, sisa pembinaan dan sebagainya. Industri: perlombongan, bahan pembinaan, loji simen
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ramai yang salah memahami soalan ini! Litar Terbuka? - .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Ramai yang salah memahami soalan ini! Litar Terbuka? - .
+1/4/2020· Pada akhir video ini, anda akan belajar tentang: 1. salah faham tentang 'litar terbuka'Litar terbuka bermaksud Arus tak lalu!Jangan lupa untuk like video ini
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![4 Cara untuk Menghancurkan Dokumen Sensitif - .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## 4 Cara untuk Menghancurkan Dokumen Sensitif - .
+Mesin penghancur kertas dapat dibeli di toko perlengkapan kantor dan memiliki enam tingkatan keamanan berdasarkan tipisnya potongan. Ukuran satu adalah penghancur dengan potongan terbesar; enam adalah penghancur dengan potongan paling tipis dan telah disetujui untuk dokumen pemerintahan Sangat Rahasia.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![fungsi-komponen dalam litar - SlideShare](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## fungsi-komponen dalam litar - SlideShare
+24/7/2014· Selain dari pintas dan terbuka, penapis kerap juga berlaku 'bocor'. Ini akan menyebabkan arus tidak stabil. 25. 1 – level voltan at tanpa penapis 2– level voltan at dengan penapis 26. FUNGSI DIOD DALAM LITAR PENERUS 27. • Rajah A menunjukkan litar 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ayat Ruqyah Untuk Penghancur Sihir Beserta Tata Cara .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Ayat Ruqyah Untuk Penghancur Sihir Beserta Tata Cara .
+Surat Thaha ayat 69. Ayat ruqyah penghancur sihir keempat adalah surat Thaha ayat 69. " Dan lemparkanlah apa yang ada ditangan kananmu, niscaya ia akan menelan apa yang mereka perbuat. " Sesungguhnya apa yang mereka perbuat itu adalah tipu daya tukang sihir (belaka).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SAINS TAHUN 2 UNIT 7 ELEKTRIK | Science Quiz - Quizizz](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## SAINS TAHUN 2 UNIT 7 ELEKTRIK | Science Quiz - Quizizz
+Tugas saya untuk menyambungkan dan memutuskan litar elektrik. Saya ialah _____. answer choices sel kering mentol suis Tags: Question 11 SURVEY 30 seconds Q. Mentol boleh digantikan dengan buzzer dan menggunakan bateri yang Fungsi buzzer 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Chang Tun Kuet - Unit 7: Elektrik](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Chang Tun Kuet - Unit 7: Elektrik
+Apabila suis ditutup, mentol pada litar elektrik akan menyala. Litar ini dipanggil litar elektrik lengkap. Apabila suis terbuka, mentol tidak menyala. Ini kerana arus elektrik tidak dapat mengalir melalui litar elektrik yang tidak lengkap. (D) Simbol Komponen dan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PEMERIKSAAN - Jurutiknik Elektrik_Perkongsian .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## PEMERIKSAAN - Jurutiknik Elektrik_Perkongsian .
+Ø Fius atau pemutus litar akhir hendaklah tanggalkan dan di litar-tutup Ø Jalankan ujian sebagaimana rajah di atas  Litar terbuka. ii) Litar pintas. iii) Kerosakkan bumi. Litar terbuka Litar terbuka mungkin disebabkan oleh satu daripada perkara b. Pengalir 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![untuK member2: Kawalan motor bab 2](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## untuK member2: Kawalan motor bab 2
+-Sesentuh geganti boleh dibahagikan kepada dua jenis iaitu sesentuh sedia buka dan sesentuh sedia tutup.-sesentuh sedia buka mempunyai sesentuh yang sentiasa terbuka dan menutup apabila gelungnya mendapat tenaga elektrik .-Lazimnya, geganti direka
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![UNIVERSITI SAINS MALAYSIA - COnnecting REpositories](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## UNIVERSITI SAINS MALAYSIA - COnnecting REpositories
+Lukiskan litar tersebut dan terangkan maksud litar terbuka dan litar tertutup. (40 marks/markah) [b] Determine the power required by the rod and ball mills. Tentukan kuasa yang diperlukan oleh pengisar rod dan pengisar bebola. (60 marks/markah) .11/
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![7 Makanan Penghancur Lemak](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## 7 Makanan Penghancur Lemak
+KOMPAS — Maksimalkan manfaat olahraga dengan mengonsumsi makanan khusus pembasmi lemak ini. Dalam waktu setahun, berat badan akan turun sebanyak 5 kilogram. "Granola bar" tinggi serat Jixie mencari berita yang dekat dengan preferensi dan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Litar Elektrik - Jenis Elektrik Litar - Berita Perindustrian - .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Litar Elektrik - Jenis Elektrik Litar - Berita Perindustrian - .
+Terdapat 5 Jenis Utama Litar Elektrik - Litar Litar, Litar Terbuka, Litar Pendek, Litar Siri dan Litar Paralel. Marilah kita Belajar dan Memahami Secara Terperinci dengan Definisi, Contoh dan Simbol. 1. Tutup Litar Apabila beban berfungsi sendiri dalam litar maka
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pembersih Keramik | menyediakan cairan pembersih .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Pembersih Keramik | menyediakan cairan pembersih .
+Jangan biarkan tutup wadah terbuka, jika tidak sedang digunakan. Dacmar NC 100 Detergent Dacmar NC 100  Cairan liquid yang sangat ampuh untuk mengangkat lapisan sealer dan penghancur wax. Berkualitas prima serta tidak merusak obyek yang akan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Michelle - Page 3 - UNIKOM](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Michelle - Page 3 - UNIKOM
+seseorang dan volume sampah. c. Ketika volume sampah sudah terpenuhi maka secara otomatis katup air akan terbuka selama selang waktu tertentu dan kemudian akan menutup kembali. d. Selanjutnya motor penghancur sampah akan bekerja
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jenis litar 2 - SlideShare](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Jenis litar 2 - SlideShare
+1. 1. LITAR BUKA BATERI APABILA SUIS TERBUKA, MENTOL YANG TERBAKAR ATAU LITAR TERPUTUS PADA MANA MANA BAHAGIAN PADA LITAR INI MAKA ARUS TIDAK DAPAT MENGALIR DALAM LITAR. INI DINAMAKAN LITAR BUKA. 2. 2. LITAR TUTUP BATERI APABILA KOMPONEN ELEKTRIK DISAMBUNGKAN DENGAN MENGGUNA WAYAR KEPADA PUNCA ELEKTRIK.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PERANCANGAN SISTEM PENGHANCUR SAMPAH](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## PERANCANGAN SISTEM PENGHANCUR SAMPAH
+dengan motor penghancur sampah dan motor pembuka/penutup tutup wadah sampah. 6. Katup buang dan katup air merupakan valve yang berfungsi untuk mengisi air kedalam tabung dengan selang waktu tertentu sebelum sampah dihancurkan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bidang bencana alam - SlideShare](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Bidang bencana alam - SlideShare
+2.0 KEBAKARAN Kebakaran yang berlaku disebabkan oleh litar pintas, pembakaran terbuka dan kecuaian pengguna. • Jangan panik dan laporkan kepada guru sekiranya ada kelihatan tanda- tanda kebakaran. • Tutup suis utama.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![REKA BENTUK ELEKTRONIK TINGKATAN 2 - Membuka .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## REKA BENTUK ELEKTRONIK TINGKATAN 2 - Membuka .
+a) diod pemancar cahaya b) suis tekan tutup c) perintang tetap d) perintang peka cahaya 17) Terdapat 2 jenis litar iaitu litar input dan litar output. a) betul b) salah .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Reka Bentuk dan Teknologi (Elektronik) Cikgu Fadhil .](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Reka Bentuk dan Teknologi (Elektronik) Cikgu Fadhil .
+<p>Apabila punat suis ditekan, litar akan terbuka dan arus terputus
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Suis Bahasa Melayu, ensiklopedia bebas](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## Suis Bahasa Melayu, ensiklopedia bebas
+Dalam bentuk yang paling mudah, sebuah suis terdiri daripada dua keping logam yang dipanggil sesentuh yang bersentuhan untuk menyambungkan litar, dan berasingan untuk memutuskan litar. Bahan sesentuh dipilih berdasarkan ketahanannya daripada kakisan, kerana kebanyakan logam membentuk lapisan oksida yang bersifat penebat yang boleh menghalang suis daripada berfungsi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RBT Tingkatan 2 Bab 2.4 - BANKSOALAN](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## RBT Tingkatan 2 Bab 2.4 - BANKSOALAN
+ii) suis tekan buka – apabila ditekan litar akan terbuka dan arus terputus iii) suis mikro – suis tekan tutup & suis tekan buka. iv) penderia pergerakan (motion sensor) – mengesan pergerakan haba yang dihasilkan oleh manusia atau haiwan, apabila berlaku pergerakan isyarat akan dihantar kepada mikropengawal dalam bentuk digital
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![7. litar elektrik - SlideShare](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## 7. litar elektrik - SlideShare
+Simbol-simbol diwujudkan untuk menggantikankomponen-komponen elektrik semasa membuat lukisan skematik. Kertas penerangan ini akanmenerangkan maksud tersebut. 1. 2. PENERANGANLitar bermaksud satu sambungan lengkap sumber elektrik (sel) dan beban elektrik (mentol) denganmenggunakan pengalir (wayar).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [sbm china crusher scm terbaru](sbm%20china%20crusher%20scm%20terbaru.md)
+* [hayat tali pinggang skala mill feed feed schenck](hayat%20tali%20pinggang%20skala%20mill%20feed%20feed%20schenck.md)
+* [hpt cone crusher zenith](hpt%20cone%20crusher%20zenith.md)
+* [mesin penghancur arang batu penggelek berganda autocad dwg](mesin%20penghancur%20arang%20batu%20penggelek%20berganda%20autocad%20dwg.md)
+* [nama bahagian cone crusher](nama%20bahagian%20cone%20crusher.md)
+* [mesin pembuatan pasir sbm](mesin%20pembuatan%20pasir%20sbm.md)
+* [harga mesin stone crusher mini](harga%20mesin%20stone%20crusher%20mini.md)
+* [mesin penyaring bergetar mendatar untuk pasir](mesin%20penyaring%20bergetar%20mendatar%20untuk%20pasir.md)
+* [pemprosesan moden feldspar](pemprosesan%20moden%20feldspar.md)
+* [pulveriser mikro untuk oksida kilang barton](pulveriser%20mikro%20untuk%20oksida%20kilang%20barton.md)

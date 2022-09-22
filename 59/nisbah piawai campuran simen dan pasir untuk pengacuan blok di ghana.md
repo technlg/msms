@@ -1,0 +1,144 @@
+# nisbah piawai campuran simen dan pasir untuk pengacuan blok di ghana
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bina Ayat: Contoh Ayat Perkataan "seperti"](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Bina Ayat: Contoh Ayat Perkataan "seperti"
+Di mana sewa adalah pendapatan pemilik untuk faktor pengeluaran tetap seperti tanah; upah untuk tenaga kerja; bunga untuk pemilik modal; dan keuntungan untuk pengusaha. Tamabahan dari itu polis mesti diberi notis dalam 10 hari atau didenda RM10,000 akan dikenakan keatas penganjur seperti yang termaktub dalam Akta Perhimpunan Aman 2012.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![E-BOOK REKA BENTUK DAN TEKNOLOGI TINGKATAN 2](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## E-BOOK REKA BENTUK DAN TEKNOLOGI TINGKATAN 2
+28/10/2019· E-BOOK REKA BENTUK DAN TEKNOLOGI TINGKATAN 2 1. RM 8.30 FT272001 TINGKATAN KSSM logo KEMENTERIAN PENDIDIKAN MALAYSIA KURIKULU M STANDARD SEKOLAH MENE NGAH K EM ENTERIAN PENDIDIKAN MA LAYSIA TINGKATAN
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Document - Studylib](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Document - Studylib
+Free essays, homework help, flashcards, research papers, book reports, term papers, history, science, politics Science Chemistry Document 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Read Microsoft Word - Buku Panduan C 2010_Cover.doc](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Read Microsoft Word - Buku Panduan C 2010_Cover.doc
+Readbag users suggest that Microsoft Word - Buku Panduan C 2010_Cover.doc is worth reading. The file contains 171 page(s) and is free to view, download or print. 2010 BUKU PANDUAN CUKAI PENDAPATAN SYARIKAT Kemas kini: 11 Feb 2011 Buku
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![nota teknologi kejuruteraan versi doc - Scribd](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## nota teknologi kejuruteraan versi doc - Scribd
+teknologi kejuruteraan tingkatan 4 dan 5
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) LAPORAN LATIHAN INDUSTRI JABATAN KERJA .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## (PDF) LAPORAN LATIHAN INDUSTRI JABATAN KERJA .
+Academia.edu is a platform for academics to share research papers. LAPORAN LATIHAN INDUSTRI JABATAN KERJA RAYA HULU SELANGOR 44000 HULU SELANGOR, SELANGOR DARUL EHSAN (SESI APRIL 2005 – JUN 2005) YUSNITA BINTI RAMLI 4
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![J3022_Teknologi Bahan 1 - Scribd](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## J3022_Teknologi Bahan 1 - Scribd
+Pasir silika juga dilekatkan dengan 3-4% bentonite dalam menghasilkan pasir pengacuan tiruan, dengan 10% simen, 3-5% kaca air (water glass), dan dikeraskan dengan tiupan gas CO2 ke dalam acuan. Proses ini dinamakan proses tuangan bantuan gas CO2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dinding plaster dengan mortar simen: penggunaan simen .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Dinding plaster dengan mortar simen: penggunaan simen .
+Pertama, anda perlu memilih simen, kerana komposisi penyelesaiannya bergantung kepada jenis jenama apa itu. Simen ialah M400 dan M500, yang bermaksud nisbah simen dan pasir: M400 - satu hingga empat, dan M500 - satu hingga lima. Kemudian anda perlu berhati-hati menyaring pasir supaya tidak ada puing-puing di dalamnya.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PERINGATAN PENTING.my - PDF Free Download](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## PERINGATAN PENTING.my - PDF Free Download
+Ruang ini berkaitan jika petak untuk 'Ya' di bawah ruang XIII ditandakan 'X'. F1(b) Baki hantar hadapan Amaun kerugian (tahun kebelakangan dan tahun semasa) yang tidak dapat diserap di ruang A10 dan A22, dimasukkan di ruang ini selepas ditolak:(i) amaun
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sarjanamuda Kejuruteraan Awam dan Struktur - Readbag](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Sarjanamuda Kejuruteraan Awam dan Struktur - Readbag
+Berkebolehan untuk menggunakan pendekatan sistem infrastruktur kejuruteraan awam dan menilai kebolehlaksanaan ekonomi. Berkebolehan untuk berfungsi secara efektif sebagai individu dan di dalam kumpulan dengan kemampuan untuk menjadi ketua atau
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEKNIK SIPIL: Perkenalan teknik sipil](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## TEKNIK SIPIL: Perkenalan teknik sipil
+Pengenalan kepada kaedah perlombongan di permukaan dan di bawah tanah: kapal korek, pam kelikir, mendulang, lombong dedah dan kaedah asas lombong bawah tanah. Asas pengelasan tanah dan batuan Penggerudian Alat-alat gerudi yang digunakan untuk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prosiding NCET VOL.1 NO.2 2013 - Jtm [PDF] - Free .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Prosiding NCET VOL.1 NO.2 2013 - Jtm [PDF] - Free .
+Transcript 1 PROSIDING PERSIDANGAN KEBANGSAAN TEKNOLOGI KEJURUTERAAN 2013 2nd National Conference on Engineering Technology (NCET) 2013 Knowledge Application Generates Transformation 1 2 Julai 2013 Setia City Convention Centre, Setia Alam, Selangor EDITOR Profesor Dr. Wan Rashid bin Wan Ahmad Encik Mohd Abd. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknologi dan cara meletakkan batu bata - decorexpro .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Teknologi dan cara meletakkan batu bata - decorexpro .
+Mortar simen simen (pasir, simen dan limau) mempunyai semua sifat yang diperlukan untuk hasil yang boleh dipercayai: ia adalah universal untuk semua jenis bata, sederhana plastik, mudah digunakan, berpegang teguh pada permukaan bahan kerja.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Target - Scribd](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Target - Scribd
+Target - Free ebook download as Excel Spreadsheet (.xls), PDF File (.pdf), Text File (.txt) or read book online for free.  Mucho más que documentos. Descubra todo lo que Scribd tiene para ofrecer, incluyendo libros y audiolibros de importantes editoriales. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![nota-teknologi-kejuruteraan-versi-doc.docx](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## nota-teknologi-kejuruteraan-versi-doc.docx
+Boleh dilakukan kerja di darat dan di laut. Nyalaan gas mengambil masa untuk mencapai Boleh digunakan untuk pelbagai ketebalan tahap kepanasan yang dikehendaki. logam. Kos gas oksigen dan asetilena mahal. Boleh mengimpal pelbagai jenis logam. 1.3
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![vocab.txt · huseinzol05/bert-large-bahasa-standard-cased .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## vocab.txt · huseinzol05/bert-large-bahasa-standard-cased .
+from transformers import AutoTokenizer, AutoModelForMaskedLM tokenizer = AutoTokenizer.from_pretrained("huseinzol05/bert-large-bahasa-standard-cased-fix") model 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CITRA+munawwarah+3 - Scribd](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## CITRA+munawwarah+3 - Scribd
+Di samping perjanjian baginda dengan ketua suku dan ketua Yahudi di madinah untuk mewujudkan obligasi bersama untuk mempertahankan negara baru Madinah, baginda juga melancarkan pelbagai perjanjian melalui Ghazwah (utusan kecil) untuk pre-emtif
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![kamus - Scribd](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## kamus - Scribd
+O Scribd é o maior site social de leitura e publicação do mundo. a aa ab aba aba-aba abad abadi abadiah abadiat abadikan abah abai abaikan abaimana abak abaka abaktinal abakus abal aban abang abangan abangga abangmu abangnya abar abaran abas abasiah 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BINA RUMAH SENDIRI – HARGA BAHAN BINAAN .](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## BINA RUMAH SENDIRI – HARGA BAHAN BINAAN .
+Full Description. Berikut adalah contoh bajet harga bahan binaan untuk projek renovate ubahsuai atau buat rumah di Malaysia dalam RM ringgit. BINA RUMAH SENDIRI – HARGA BAHAN BINAAN RUMAH BATU TIANG PASIR KAYU BESI DAN UPAH TUKANG BUAT RUMAH. · Simen (1 bag 50 kg) – RM 16.00/kg. · Bata simen – RM0.21 satu.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Buku Teks Kssm Tingkatan 2 Reka Bentuk Dan Teknologi](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Buku Teks Kssm Tingkatan 2 Reka Bentuk Dan Teknologi
+Tujuannya adalah untuk memastikan kuantiti dan kedudukan yang betul bagi komponen-komponen seperti mentol atau LED, suis, bateri, dan kepanjangan wayar, Pemilihan wayar mestilah sesuai agar mudah ditempatkan di bahagian yang tidak dapat dilihat di
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Komposisi Campuran Pasir dan Semen yang Tepat untuk .](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Komposisi Campuran Pasir dan Semen yang Tepat untuk .
+Sedangkan untuk memplester dinding bata yang berada di atas tanah, Anda bisa menggunakan campuran semen dan pasir 1 : 6. 3.Campuran beton Campuran untuk beton biasanya terdiri dari pasir dengan semen dan batu split.Campuran umumnya adalah 1 : 2 : 3, artinya satu bagian semen, 2 bagian pasir dan 3 bagian batu split.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mencampur Semen dan Pasir Pakai olen Agar Hasil .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Mencampur Semen dan Pasir Pakai olen Agar Hasil .
+Beranda DAERAH JATENG-YOGYAKARTA Mencampur Semen dan Pasir Pakai olen Agar Hasil Campuran Bisa Bagus
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mortar pasir simen: ketumpatan simen mengikut GOST, .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Mortar pasir simen: ketumpatan simen mengikut GOST, .
+Walaupun berada di fasad bangunan, mereka boleh berkhidmat sekurang-kurangnya 15 tahun. Campuran simen pasir mempunyai lekatan yang tinggi dengan pelbagai asas. Mereka boleh digunakan dengan selamat dalam reka bentuk permukaan konkrit, bata, batu dan blok. Bahan bangunan dan kemasan yang ideal tidak wujud.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Cara menghitung kebutuhan pasir dan semen](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Cara menghitung kebutuhan pasir dan semen
+Analisa kebutuhan bahan pada pasangan dinding batu bata dengan perbandingan adukan 1 semen : 5 pasir dalam 1 m2. SNI 6897:2008 No.6.10 : Memasang 1 m2 dinding bata merah ukuran (5 x 11 x 22) cm tebal ½ bata, campuran spesi 1 PC : 5 PP. 9,68 kg semen. 0,045 m3 pasir pasang. 70 bh batu bata.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perbandingan Campuran Adukan Semen dan Pasir - Arafuru](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## Perbandingan Campuran Adukan Semen dan Pasir - Arafuru
+Ada pula adukan plesteran yang ditujukan khusus untuk memplester dinding. Sesuai penamaannya, adukan ini terbuat dari campuran semen dan pasir, kadang-kadang juga ditambahkan split berupa batu kerikil. Mengingat fungsinya yang beranekaragam, maka proses pembuatan adukan tersebut dan komposisinya pun berbeda-beda.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEKNIK SIPIL - Blogger](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## TEKNIK SIPIL - Blogger
+Kalau belum puas, cari jawabannya pada buku referensi lain atau internet. Cara ini mengajak kita untuk selalu berpikir ke depan dan kritis. <br /><br />· Sediakan waktu untuk istirahat<br />Belajar boleh kencang, tapi jangan lupa untuk istirahat. Kalau di kelas
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![NISBAH BANCUHAN KONKRIT - CIVILisation](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## NISBAH BANCUHAN KONKRIT - CIVILisation
+contoh; untuk membancuh gred 20 1 kg simen : 2kg pasir : 4 kg batu. dan struktur yang akan kita buat terdedah kepada air hujan, maka nisbah air/simen 0.55. Langkah 1 : Masukkan satu beg simen ke dalam mesin pembancuh seperti dalam gambar di bawah.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tambahan kod.my - PDF Free Download](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Tambahan kod.my - PDF Free Download
+Ruang ini berkaitan jika petak untuk 'Ya' di bawah ruang XII ditandakan 'X'. F1(b) Baki hantar hadapan Amaun kerugian (tahun kebelakangan dan tahun semasa) yang tidak dapat diserap di ruang A12 dan A20, dimasukkan di ruang ini selepas ditolak:(i) amaun
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Menghitung kebutuhan material besi pasir semen koral .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Menghitung kebutuhan material besi pasir semen koral .
+Kali ini kita akan coba menghitung kebutuhan material besi pasir semen koral papan dan bondek dak lantai, ini sekaligus menjawab pertanyaan dari sahabat ilmusipil di blog ini. Pertanyaan = jika saya akan mengecor dak lantai ukuran 8 m x 12 m dengan ketinggian 3 m, dan akan menggunakan bondek, minta tolong dihitungkan kebutuhan: 1. balok penyangga (vertical dan horizontal) 2. kebutuhan besi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prosiding NCET VOL.1 NO.2 2013 - Jtm [PDF] - Free .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Prosiding NCET VOL.1 NO.2 2013 - Jtm [PDF] - Free .
+Keputusan Setelah semua analisis dan kajian yang telah dilakukan untuk projek ini, keputusan yang diperolehi ialah projek ini dapat berfungsi dengan baik dan sesuai untuk di pasang pada jalan di hadapan sekolah. Pengguna jalan akan lebih waspada tentang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknologi Kejuruteraan-mind Map - Scribd](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Teknologi Kejuruteraan-mind Map - Scribd
+PA_BPTV_KPM Boleh dilakukan dalam pelbagai kedudukan sambungan dan mutu sambungannya adalah sama. Kos penyelenggaraan peralatan kimpalan rendah. Boleh dilakukan kerja di darat dan di laut. Boleh digunakan untuk pelbagai ketebalan logam
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PPT – TEKNOLOGI DAN PERADABAN TEKNOLOGI PURBA .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## PPT – TEKNOLOGI DAN PERADABAN TEKNOLOGI PURBA .
+SEB, tamadun ini pindah 300 km ke hulu Nil lagi dari Napata ke Meroe akan tetapi  Kush diikuti oleh Axum atau Etiopia moden di hulu Nil dan Nok di Afrika Barat  – A free PowerPoint PPT presentation (displayed as a Flash slide show) on PowerShow
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Prinsip Perakaunan Bab 15: Analisis Nisbah - Nisbah .](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Prinsip Perakaunan Bab 15: Analisis Nisbah - Nisbah .
+- Untuk mengukur keupayaan perniagaan membuat pelbagai jenis pembayaran kepada pihak lain seperti pemiutang dan pinjaman bank. - Menunjukkan keadaan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [carta aliran pemprosesan antimoni](carta%20aliran%20pemprosesan%20antimoni.md)
+* [mesin penghancur arang batu 30 tan jam](mesin%20penghancur%20arang%20batu%2030%20tan%20jam.md)
+* [pembekal skrin bergetar di sri lanka](pembekal%20skrin%20bergetar%20di%20sri%20lanka.md)
+* [bagaimana membuat projek arang batu letupan sekunder](bagaimana%20membuat%20projek%20arang%20batu%20letupan%20sekunder.md)
+* [mesin baru untuk membuat pasir](mesin%20baru%20untuk%20membuat%20pasir.md)
+* [penghasilan nanopartikel menggunakan pengisar bola](penghasilan%20nanopartikel%20menggunakan%20pengisar%20bola.md)
+* [proses dalam perlombongan besi](proses%20dalam%20perlombongan%20besi.md)
+* [pengeluar peralatan perlombongan di kanada dan australia](pengeluar%20peralatan%20perlombongan%20di%20kanada%20dan%20australia.md)
+* [penghasil kilang penghasil karbida pepejal di china](penghasil%20kilang%20penghasil%20karbida%20pepejal%20di%20china.md)
+* [parameter kilang simen](parameter%20kilang%20simen.md)

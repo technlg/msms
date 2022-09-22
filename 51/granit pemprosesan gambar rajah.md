@@ -1,0 +1,128 @@
+# granit pemprosesan gambar rajah
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENDIDIKAN ASAS VOKASIONAL](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## PENDIDIKAN ASAS VOKASIONAL
+1. Melabelkan gambar rajah blok kitaran pemprosesan maklumat yang dilukis. 2. Membuat latihan 1.1. 3. Mengumpul gambar-gambar peranti input, output dan storan dari Internet. 4. Menyimpan imej dalam folder yang betul. LANGKAH KERJA 1. Lukis2.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Gambar vs Rajah - Apa perbezaannya? - Soalan Yang .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Gambar vs Rajah - Apa perbezaannya? - Soalan Yang .
+Gambar Imej (dari Latin: imago) adalah artifak yang menggambarkan perepi viual, contohnya, gambar atau gambar dua dimeni, yang mempunyai penampilan yang erupa dengan beberapa ubjek-biaanya objek fizikal atau eeorang, dengan itu menyediakan gambaran ia. Di dalam pemproean iyarat imej, imej adalah amplitud teragih warna (). Gambar (kata benda)Perwakilan apa-apa (ebagai orang, landkap, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CPT346 – Natural Language Processing [Pemprosesan Bahasa Tabii ]](https://github.com/technlg/images/blob/main/31.jpg)</a>
+## CPT346 – Natural Language Processing [Pemprosesan Bahasa Tabii ]
+Gambar Rajah 1 (a) Berdasarkan Gambar Rajah 1, isikan petak kosong pada dua-aras tape FST di bawah. LEXICAL INTERMEDIATE SURFACE (5/100) (b) Apakah yang diperlukan untuk membina penghurai morfologi(20/100) dua
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Keramik Granit Berkualitas Terbaik - Granito](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Keramik Granit Berkualitas Terbaik - Granito
+PT. Granitoguna Building Ceramics menghadirkan teknologi keramik terbaik dan berkualitas dengan bahan terbaik. Lantai keramik granit natural mewah bermotif dan artistik. Explore the Granito Room Visualiser Create the perfect decor where you can see instantly
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pemprosesan Perkataan | Computers Quiz - Quizizz](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Pemprosesan Perkataan | Computers Quiz - Quizizz
+Pemprosesan Perkataan DRAFT 2 months ago by db170139_81137 Played 29 times 0 University Computers 58% average accuracy 0 Save Edit Edit Print Share Edit Delete Host a game Live Game Live Homework Solo Practice Practice Play Share practice link 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Granit: Igneous Rock - Gambar, Definisi & Lebih - Geologi](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Granit: Igneous Rock - Gambar, Definisi & Lebih - Geologi
+Batu granit: Gambar rajah segitiga ini adalah kaedah pengelasan batu-batu granit. Ia didasarkan pada kelimpahan relatif feldspars (K-Na-Ca) dan kuarza. Unsur-unsur mafik tidak dipertimbangkan. Ia diubah selepas carta klasifikasi disediakan oleh Kesatuan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perbezaan Antara Visualisasi dan Pemprosesan Imej 2021](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Perbezaan Antara Visualisasi dan Pemprosesan Imej 2021
+Visualisasi dan pemprosesan imej adalah dua cara menghasilkan imej sama ada melalui isyarat atau dari rajah atau sketsa. Kedua-duanya akan menghasilkan gambar sama ada dicetak atau melalui monitor. Kedua-duanya juga mempunyai kegunaan dan aplikasi mereka sendiri dan yang terbaik adalah mempelajari perbezaan antara kedua-duanya.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Geografi Stpm Set 1 - Penggal 1 - [PDF Document]](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Geografi Stpm Set 1 - Penggal 1 - [PDF Document]
+Gambar Rjarah 1 b) Berdasarkan gambar rajah 1 di atas merujuk kepada pergerakan bumi, i. Nyatakan kesan kejadian di atas. [1] Kejadian siang dan malam ii. Jelaskan kesan terhadap batuan akibat pergerakan tersebut terhadap permukaanbumi. [2]
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perapian marmar (60 gambar): marmar dan portal granit .](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Perapian marmar (60 gambar): marmar dan portal granit .
+Perapian yang diperbuat daripada granit juga tahan lama, ia dicirikan oleh ketahanan terhadap suhu yang melampau, lama dieksploitasi dan mempunyai tekstur yang indah. Memilih tempat perapian dari bahan semulajadi seperti marmar dan granit, satu tidak hanya dapat menekankan pedalaman dengan cara yang asal, tetapi juga membuat kosiness di dalam bilik.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARAHAN KEPADA CALON - COnnecting REpositories](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## ARAHAN KEPADA CALON - COnnecting REpositories
+(iii) Gambar rajah aliran data (DFD) dan kamus data (DD) (iv) Aljabar hubungan dan SQL [24/100]  Berikan tiga sebab utama kenapa kita perlu menukar sistem pemprosesan fail kepada sistem pangkalan data. [15/100] (b) Satu daripada organisasi fail 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ISI KANDUNGAN ABSTRAK i ABSTRACT ii](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## ISI KANDUNGAN ABSTRAK i ABSTRACT ii
+x b) Pemplotan Gambar Rajah Harker c) Pemplotan Gambar Rajah Labah-labah d) Pemplotan Gambar Rajah Tren REE 153 155 155 5.3.2 Pencirian Geokimia Batuan Siri Kalk-alkali a) Unsur-unsur Major and Minor b) Pemplotan Gambar Rajah Harker c
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BUKU TEKS RBT TING 2 CETAKAN 2017 Pages 51 - 100 .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## BUKU TEKS RBT TING 2 CETAKAN 2017 Pages 51 - 100 .
+Unit Pemprosesan Pusat (CPU) Bahagian Proses Rajah 2.4.3 Gambar rajah blok bahagian utama dalam mikropengawalBahagian input ialah salah Peranti input terbahagi kepada dua,iaitu peranti input digital dan peranti input analog.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![71 UJIAN BERTULIS - Andrew Choo](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## 71 UJIAN BERTULIS - Andrew Choo
+A Lengkapkan gambar rajah blok itu dengan menulis dan B pada petak yang disediakan. Pembaz Lampu LED Penderia inframerah Perintang peka cahaya (LDR) 17. Gambar di bawah menunjukkan reka bentuk kipas serbaguna. Tandakan (√) pada aplikasi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2.4 Reka Bentuk Elektronik - Kutuyu aç - Wordwall](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## 2.4 Reka Bentuk Elektronik - Kutuyu aç - Wordwall
+Pemprosesan Pusat (CPU) b) Mikropengawal c) RAM (Random Access Memory) 2) Lengkapkan gambar rajah tersebut a) Microprocessor b) RAM c) Shortbread d) LCD 3) _____ ialah peranti pemprosesan mikro dalam satu cip a Tugas utama bahagian 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PPT) ASSGMNT EDU MODEL PEMPROSESAN MKLMT | .](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## (PPT) ASSGMNT EDU MODEL PEMPROSESAN MKLMT | .
+Academia.edu is a platform for academics to share research papers. EDU 3103 MURID DAN ALAM BELAJAR Bincangkan model pemprosesan maklumat dengan menggunakan analisis swot.aplikasikan model ini dalam satu rancangan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PARIETAL LOBUS: DEFINISI, FUNGSI, GAMBAR RAJAH, .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## PARIETAL LOBUS: DEFINISI, FUNGSI, GAMBAR RAJAH, .
+Pemprosesan deria Lob parietal menangani banyak sensasi, termasuk: sentuhan tekanan sakit haba sejuk ketegangan Ini adalah deria somatik, yang bermaksud bahawa ia berasal dari badan. Maklumat dari deria ini membantu seseorang membentuk sensasi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pemprosesan Imej | IQRA'](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Pemprosesan Imej | IQRA'
+Gambar tersebut akan dipecah-pecahkan paling banyak 5 pecahan.. Ha.. kat bawah ni rajah macam mana proses splitting ngan merging .. Contoh gambar yg di' split '..
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Alat penyahidrat sistematik untuk madu kelulut (Systematic .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Alat penyahidrat sistematik untuk madu kelulut (Systematic .
+Sebelum operasi menggunakan alat ini, kawasan pemprosesan perlu bersih dan selamat daripada pencemaran. Proses Gambar rajah 2. Lukisan skematik alat penyahidrat madu kelulut MARDI t t 10 cm 21.5 cm 58 cm 19 cm 35 cm Manik pengering Motor Aci
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknologi Agrivoltaik (2) - HarakahDaily](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Teknologi Agrivoltaik (2) - HarakahDaily
+Gambar rajah 4: Konsep pengering dual-pass PV yang dibangunkan oleh penyelidik UPM bagi menuai sumber matahari secara optimum – fail paten PI (https://iponlineext.myipo.gov.my) Melalui konsep ini yang dipaparkan seperti Gambar rajah 5, tenaga matahari dapat dituai secara optimum dan pembaziran tenaga ( energy wastage ) serta kesan pemanasan alam sekitar dapat dikurangkan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(DOC) MODEL PEMPROSESAN MAKLUMAT DAN MODEL .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## (DOC) MODEL PEMPROSESAN MAKLUMAT DAN MODEL .
+Rajah 3 di bawah memperincikan maklumat Model Pemprosesan maklumat; pemikiran tahap tinggi. Pengajaran pencapaian konsep bukan direka bentuk untuk mengajar maklumat yang banyak kepada pelajar. Ia sekadar belajar konsep utama untuk diaplikasikan kepada pelajaran yang lain.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![CSA401 - Pemprosesan Selari ARAHAN KEPADA CALON: .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## CSA401 - Pemprosesan Selari ARAHAN KEPADA CALON: .
+1. Terangkan perkara berikut dengan menggunakan contoh atau gambar rajah: (a) Ukuran pencapaian untuk sistem pemprosesan selari. (4 markah) (b) Sistem SIMD. (3 markah) (c) Sistem MIMD. (3 markah) 1. Explain the following with suitable examples
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![July 2018 – Arkib kerja cikguyanto yang kachak.](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## July 2018 – Arkib kerja cikguyanto yang kachak.
+Aktiviti berkumpulan – Menyiasat teknik pemprosesan makanan bagi sampel makanan dikaji,  Muat turun latihan>> Latihan melukis gambar rajah sinar kanta Posted on 18 Jul 2018 by haryantosalamat Posted in Bab 7 Leave a comment Mengkaji hubungan di 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENINGKATAN PRESTASI PROSES MENGGUNAKAN KAEDAH .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## PENINGKATAN PRESTASI PROSES MENGGUNAKAN KAEDAH .
+Rajah 2: Gambar rajah pokok reka bentuk uji kaji Kawalan Proses Statistik atau Statistical Process Control (SPC) digunakan untuk menyokong operasi pengeluaran. Alat SPC yang biasa digunakan adalah carta kawalan yang menunjukkan sama ada
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BUKU TEKS RBT TING 2 CETAKAN 2017 Pages 51 - 100 - .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## BUKU TEKS RBT TING 2 CETAKAN 2017 Pages 51 - 100 - .
+Unit Pemprosesan Pusat (CPU) Bahagian Proses Rajah 2.4.3 Gambar rajah blok bahagian utama dalam mikropengawalBahagian input ialah salah Peranti input terbahagi kepada dua,iaitu peranti input digital dan peranti input analog.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RBT Tingkatan 2 - Elektronik | Education Quiz - Quizizz](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## RBT Tingkatan 2 - Elektronik | Education Quiz - Quizizz
+peranti pemprosesan mikro dalam satu cip peranti kawalan dalam sistem peranti pemprosesan dalam sistem Tags: Question 3 SURVEY 45 seconds Report an issue Q. Berikut merupakan gambar rajah blok mikropengawal. Nyatakan peranti kawalan yang Q. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Latihan Reka Bentuk Elektronik – Siri 1 | Nadi Eleczone .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Latihan Reka Bentuk Elektronik – Siri 1 | Nadi Eleczone .
+Gambar rajah di bawah adalah blok Mikropemproses Soalan: Lukiskan gambar blok Mikropemproses.  Peranti pemprosesan mikro dalam satu cip yang digunakan bersama cip- cip sokongan (Input, Output, RAM dan ROM) berada di luar mikropemproses dan. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KSSM Reka Bentuk dan Teknologi_Tingkatan_2-Flip .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## KSSM Reka Bentuk dan Teknologi_Tingkatan_2-Flip .
+Rajah 2.4.15 Contoh lakaran gambar rajah blok pengoperasian diod pemancar cahaya berkelip Gambar Foto 2.4.17 Pelbagai projek yang menarik dapat dihasilkan dengan diod pemancar cahaya
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![2.4 Reka Bentuk Elektronik - Open the box - Wordwall](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## 2.4 Reka Bentuk Elektronik - Open the box - Wordwall
+Pemprosesan Pusat (CPU) b) Mikropengawal c) RAM (Random Access Memory) 2) Lengkapkan gambar rajah tersebut a) Microprocessor b) RAM c) Shortbread d) LCD 3) _____ ialah peranti pemprosesan mikro dalam satu cip a Tugas utama bahagian 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Programmable Logic Controller (PLC) – cara-cara .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## Programmable Logic Controller (PLC) – cara-cara .
+Komponen asas termasuk bekalan kuasa, unit pemprosesan pusat (CPU atau pemproses), modul pemproses bersama, modul input dan output (I / O), dan peranti periferi. Rajah .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [bagaimana mengenal pasti emas dalam perlombongan](bagaimana%20mengenal%20pasti%20emas%20dalam%20perlombongan.md)
+* [pengeluar kilang penggilingan klinker di indonesia](pengeluar%20kilang%20penggilingan%20klinker%20di%20indonesia.md)
+* [pemprosesan bijih titanium](pemprosesan%20bijih%20titanium.md)
+* [mesin pengamplasan laser 3d menonton video](mesin%20pengamplasan%20laser%203d%20menonton%20video.md)
+* [mesin pemprosesan feronikel kecil](mesin%20pemprosesan%20feronikel%20kecil.md)
+* [penghancur batu tangan murah](penghancur%20batu%20tangan%20murah.md)
+* [kaedah simen kering dan basah](kaedah%20simen%20kering%20dan%20basah.md)
+* [apakah penghancur impak nombor satu di amerika syarikat](apakah%20penghancur%20impak%20nombor%20satu%20di%20amerika%20syarikat.md)
+* [peralatan untuk memisahkan emas dari pasir](peralatan%20untuk%20memisahkan%20emas%20dari%20pasir.md)
+* [kilang menghancurkan dan mengisar di usa](kilang%20menghancurkan%20dan%20mengisar%20di%20usa.md)

@@ -1,0 +1,136 @@
+# pejabat sbm china di jakarta
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SBM 2021 – 3. Satuan Biaya Transpor Kegiatan Dalam .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## SBM 2021 – 3. Satuan Biaya Transpor Kegiatan Dalam .
+Download SBM 2021 Download Standar Biaya Keluaran 2021 Satuan biaya transpor kegiatan dalam kabupaten/kota merupakan satuan biaya untuk perencanaan kebutuhan biaya transportasi Pejabat Negara/Pegawai Aparatur Sipil Negara/ Anggota Polri/TNI/pihak 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kontak Kami - Embassy of China, Jakarta](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Kontak Kami - Embassy of China, Jakarta
+Alamat: Unit 07-12, 8 nd Floor East Building, DR Ide Anak Agung Gde Agung Blok E.3.2 Kav 1 South Jakarta 12950. Telepon : , ( Fax ) Email : jakartacentre@visaforchina
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Heboh Temuan Drone China di Perairan Indonesia, Ini .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Heboh Temuan Drone China di Perairan Indonesia, Ini .
+TNI AL memastikan bahwa benda yang sempat diduga drone milik China yang ditemukan di perairan Indonesia ialah sea glider. Berikut ini adalah spesifikasinya: 1. frekuensi: 500 KHz 2. depth rating: 4.000 meter 3. operating temperature: -10 sampai 35 derajat Celcius
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Yuk, Mampir ke 5 Resto China Legendaris di Jakarta!](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Yuk, Mampir ke 5 Resto China Legendaris di Jakarta!
+Jakarta - Menyantap hidangan China di 5 restoran ini dijamin istimewa. Sudah puluhan tahun restoran ini eksis melayani pelanggan setianya. Ada banyak restoran China di Jakarta, tapi kalau mau yang legendaris mampirlah ke restoran ini.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SBM 2020 | L1-33. Satuan Biaya Rapat/Pertemuan di .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## SBM 2020 | L1-33. Satuan Biaya Rapat/Pertemuan di .
+SBM 2020 | L1-33. Satuan Biaya Rapat/Pertemuan di Luar Kantor Standar Biaya Masukan (SBM) Tahun 2020 Download: SBM 2020 1. Paket Kegiatan Rapat/ Pertemuan di Luar Kantor Satuan biaya paket kegiatan rapat/pertemuan di luar kantor merupakan satuan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pratikno Lantik 11 Pejabat Eselon I di Kementerian .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Pratikno Lantik 11 Pejabat Eselon I di Kementerian .
+COM, JAKARTA - Menteri Sekretaris Negara (Mensesneg) Pratikno melantik 11 pejabat untuk mengisi posisi Jabatan Pimpinan Tinggi Madya atau eselon I di lingkungan Kementerian Sekretariat Negara.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Info Kedubes - Embassy of China, Jakarta](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## Info Kedubes - Embassy of China, Jakarta
+(1) Pusat Pelayanan Permohonan Visa China di Jakarta Alamat : Gedung The East Lantai 8 Unit 07-12 Jl. DR Ide Anak Agung Gde Agung Blok E.3.2 Kav 1 Jakarta Selatan 12950 Telepon : Fax : Email : jakartacentre@visaforchina
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MENTER! KEUANGAN REPUBLIK INDONESIA,](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## MENTER! KEUANGAN REPUBLIK INDONESIA,
+l. Nilai pagu dana di atas RplOO miliar s.d. Rp250 miliar OB Rp4.630.000 m. Nilai pagu dana di atas Rp250 miliar s.d. Rp500 miliar OB RpS.130.000 n. Nilai pagu dana di atas Rp500 miliar s.d. Rp750 miliar OB Rp5.640.000 o. Nilai pagu dana di atasp.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sekretariat Jenderal Kementerian Pekerjaan Umum dan .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Sekretariat Jenderal Kementerian Pekerjaan Umum dan .
+Perkantoran Kementerian PUPR di Wilayah Provinsi DKI Jakarta Menerapkan Pola Kerja Dari Rumah (Work From Home) Sampai 25 September 2020 Selasa, 22 September 2020 Kementerian Pekerjaan Umum dan Perumahan Rakyat (PUPR) melalui Surat Plt.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Direktori Perbankan Indonesia 2017 Bank Umum](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Direktori Perbankan Indonesia 2017 Bank Umum
+BANK OF CHINA BANK OF AMERICA--Alamat / Address Alamat / Address Alamat / Address Jl. MH. Thamrin No. 3, Jakarta Pusat 10110 Wisma Tamara, Suite 101,102, 201 & 1101, Jl. Jend. Sudirman Kav. 24, Jakarta 12920 Gedung Bursa Efek Jakarta
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pejabat Penerima dan Pengeluar Pasport](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Pejabat Penerima dan Pengeluar Pasport
+3.Pejabat Konsulat Jeneral Malaysia di HONG KONG, HONG KONG SAR (CHINA). 4.Pejabat Kedutaan Besar Malaysia di JAKARTA, INDONESIA. 5.Pejabat Suruhanjaya Tinggi Malaysia di .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Covid-19: Jokowi wacanakan karantina di tingkat RT/RW, .](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Covid-19: Jokowi wacanakan karantina di tingkat RT/RW, .
+29/1/2021· Merujuk pedoman itu, pejabat RT/RW di Jakarta diminta untuk melakukan sejumlah hal, antara lain mendata dan melaporkan warga mereka yang mengalami gejala maupun positif Covid-19 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![STANDAR BIAYA MASUKAN TAHUN ANGGARAN 2020](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## STANDAR BIAYA MASUKAN TAHUN ANGGARAN 2020
+UU No.17 Tahun 2003 tentang Keuangan Negara PP No. 90 Tahun 2010 tentang Penyusunan RKA-K/L •Pasal 5 Ayat (3), Penyusunan anggaran RKA-K/L menggunakan instrumen indikator kinerja, standar biaya, dan evaluasi kinerja. •Pasal 5 Ayat (5
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Bolehkah biaya transportasi (pesawat) dalam perjalanan .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Bolehkah biaya transportasi (pesawat) dalam perjalanan .
+Instansi tempat Ibu Ayu bekerja mendapat info bahwa kegiatan rapat yang akan dilaksanakn di Jakarta dikirimkan 1 hari sebelum pelaksanaan kegiatan, karena kegiatannya bersifat mendadak. Maka H-1, semua kelengkapan administrasi disiapkan, termasuk pembelian tiket pesawat.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pertemuan dengan China Bocor, Militer Myanmar Tahan .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Pertemuan dengan China Bocor, Militer Myanmar Tahan .
+JAKARTA - Dua pejabat Kementerian Luar Negeri Myanmar yang berkantor di Naypyitaw, ditahan lantaran dugaan kebocoran informasi pertemuan penting. Pertemuan dimaksud adalah pertemuan yang melibatkan pejabat rezim militer Myanmar dengan perwakilan Pemerintah China.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![China Tekan Alibaba Lepas Aset Media, Ternyata Ini .](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## China Tekan Alibaba Lepas Aset Media, Ternyata Ini .
+2 · Pejabat pemerintah sangat kecewa dengan pengaruh perusahaan atas media sosial di China dan perannya dalam skandal online, yang melibatkan salah satu eksekutifnya. Jack Ma, salah satu pendiri Alibaba, telah menjadi pusat tindakan keras pemerintah yang dimulai tahun lalu, menargetkan raksasa e-commerce dan afiliasi keuangannya Ant Group Co.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Info Kedubes - Embassy of China, Jakarta](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## Info Kedubes - Embassy of China, Jakarta
+1. Kontak Pusat Pelayanan Permohonan Visa China (1) Pusat Pelayanan Permohonan Visa China di Jakarta Alamat : Gedung The East Lantai 8 Unit 07-12 Jl. DR Ide Anak Agung Gde Agung Blok E.3.2 Kav 1 Jakarta Selatan 12950 Telepon : 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![STANDAR BIAYA MASUKAN (SBM)](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## STANDAR BIAYA MASUKAN (SBM)
+STANDAR BIAYA MASUKAN (SBM) PERATURAN MENTERI KEUANGAN RI NOMOR 33 PMK.02 2016 TENTANG STANDAR BIAYA MASUKAN TAHUN ANGGARAN 2017 PERATURAN MENTERI KEUANGAN RI No.49/PMK.02/2017 (SBM) TENTANG
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kasus Varian Baru Covid-19 di China Melonjak Dobel](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Kasus Varian Baru Covid-19 di China Melonjak Dobel
+Jakarta, CNN Indonesia -- Jumlah temuan kasus infeksi varian baru Covid-19 di Provinsi Hubei, China bertambah pada Minggu (10/1) menjadi 69 kasus baru. Hal tersebut mendorong pemerintah setempat untuk mengambil sejumlah langkah penanganan guna
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mantan Bos BUMN China Dihukum Mati karena Kasus .](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Mantan Bos BUMN China Dihukum Mati karena Kasus .
+Jakarta - Pemerintah China menghukum mati mantan pejabat tinggi China Huarong Asset Management Co, Lai Xiaomin, atas tuduhan tindak korupsi. Huarong sendiri adalah perusahaan pelat merah alias BUMN milik pemerintah China. Xiaomin terbukti melakukan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anies Lantik 12 Pejabat Tinggi di Pemprov DKI](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Anies Lantik 12 Pejabat Tinggi di Pemprov DKI
+24/2/2021· JAKARTA - Gubernur Provinsi DKI Jakarta, Anies Baswedan, melantik dan mengambil sumpah jabatan kepada 12 Pejabat Pimpinan Tinggi Pratama di lingkungan Pemprov DKI Jakarta serta pengukuhan Kepala Kantor Regional V Badan Kepegawaian Negara (BKN) Jakarta di Balai Kota DKI Jakarta, pada Selasa (23/2/2021). 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SBM 2021 – 2. Satuan Biaya Transportasi dari DKI Jakarta .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## SBM 2021 – 2. Satuan Biaya Transportasi dari DKI Jakarta .
+SBM 2021 – 2. Satuan Biaya Transportasi dari DKI Jakarta ke Kabupaten/Kota Sekitar (One Way) Satuan biaya transportasi dari DKI Jakarta ke kabupaten/kota sekitar merupakan satuan biaya untuk perencanaan kebutuhan biaya transportasi bagi Pejabat Negara/Pegawai Aparatur Sipil Negara/ Anggota Polri/TNI/pihak lain dari tempat kedudukan di DKI Jakarta 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![STANDAR/TARIF PERJALANAN DINAS DALAM .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## STANDAR/TARIF PERJALANAN DINAS DALAM .
+Erwin adalah seorang pejabat Kepala Kantor Instansi Vertikal eselon 2 di Provinsi Aceh, dimana kantor tersebut berkedudukan di Banda Aceh. Pada Tanggal 15 sampai dengan 17 Mei 2019 melaksanakan perjalanan dinas selama 3 hari ke Kota Langsa.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Embassy of the People's Republic of China in Malaysia](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Embassy of the People's Republic of China in Malaysia
+State Councilor and Foreign Minister Wang Yi Gives Interview to Xinhua News Agency and China Media Group on International Situation and China's Diplomacy in 2020（） President Xi Jinping's 2021 New Year address（）
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Setelah Presiden Jokowi, Ini Daftar Pejabat yang .](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Setelah Presiden Jokowi, Ini Daftar Pejabat yang .
+JAKARTA - Presiden Jokowi dipastikan menjadi orang pertama yang mendapatkan suntikan vaksin COVID-19 tahap pertama di Indonesia yang dimulai hari ini. Menurut data yang beredar dari Kementerian Kesehatan, ada tiga kelompok yang akan menerima vaksinasi periode 13-15 Januari 2021. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tim Xi Jinping dan Tim Biden Siapkan Diskusi Khusus di .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Tim Xi Jinping dan Tim Biden Siapkan Diskusi Khusus di .
+10/3/2021· Dilansir oleh South China Morning Post (SCMP), pertemuan ini dalam rangka menyelesaikan konflik keduanya. China diketahui akan menurunkan pejabat-pejabat tinggi dalam pertemuan ini. Bisnis, JAKARTA - Dua poros ekonomi dunia yang selama ini selalu berselisih, Amerika Serikat (AS) dan China, akan mengadakan pertemuan khusus di Alaska dalam waktu dekat.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Anies Baswedan dan Daftar Pejabat Pemprov DKI Jakarta .](https://github.com/technlg/images/blob/main/62.jpg)</a>
+## Anies Baswedan dan Daftar Pejabat Pemprov DKI Jakarta .
+4. Kepala Dinas Pertamanan dan Hutan Kota Provinsi DKI Jakarta, Suzy Marsitawati 5. Direktur Utama PD Pasar Jaya, Arief Nasruddin 6. Kepala Biro Penataan Kota dan Lingkungan Hidup, Afan Adriansyah Idris 7. Ketua TGUPP, Amin Subekti Baca juga:
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kemenkeu | Opening The New Horizon - Kementerian .](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Kemenkeu | Opening The New Horizon - Kementerian .
+Kementerian Keuangan Republik Indonesia (disingkat Kemenkeu RI) adalah kementerian negara di lingkungan Pemerintah Indonesia yang membidangi urusan keuangan dan kekayaan negara, Kementerian Keuangan berkedudukan di bawah dan bertanggungjawab
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dianggap Antek China, Begini Reaksi Luhut](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## Dianggap Antek China, Begini Reaksi Luhut
+9/3/2021· JAKARTA - Menteri Koordinator Bidang Maritim dan Investasi Luhut Binsar Pandjaitan menceritakan dirinya yang kerap dituding bersahabat karib dengan China. Bahkan ada yang menganggapnya sebagai antek China. Dia membantah dengan tegas adanya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![33 WNA pemeras pejabat China korup bakal .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## 33 WNA pemeras pejabat China korup bakal .
+Kepala Imigrasi Kelas I Jakarta Selatan Cucu Koswara mengatakan, pihaknya masih belum tahu 33 WN China itu dijerat dengan pasal berapa. "Jadi atas dasar informasi dari Ditreskrimum Polda Metro Jaya, dugaan ke 33 WNA asal RTT ini adalah kejahatan cyber di China.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Balas Dendam, China Sanksi Eks Menlu hingga Puluhan .](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Balas Dendam, China Sanksi Eks Menlu hingga Puluhan .
+Kemenlu China menuliskan sanksi yang diberikan sebagai balasan kepada politisi anti-China di AS terutama pada masa pemerintahan Trump. Dalam surat itu dituliskan puluhan pejabat AS selama ini hanya mengutamakan kepentingan politik, hingga tidak memberikan perhatian terhadap kepentingan rakyat China dan AS.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [peralatan pengeluaran kapur hidrat](peralatan%20pengeluaran%20kapur%20hidrat.md)
+* [bros mengasah mesin jerman](bros%20mengasah%20mesin%20jerman.md)
+* [m arang batu yang dibuat oleh pelebur satu](m%20arang%20batu%20yang%20dibuat%20oleh%20pelebur%20satu.md)
+* [beneficiamento de minerio de feldspato](beneficiamento%20de%20minerio%20de%20feldspato.md)
+* [penghancuran batu berskala besar di kenya](penghancuran%20batu%20berskala%20besar%20di%20kenya.md)
+* [diameter siklon hidro no 1 2 3](diameter%20siklon%20hidro%20no%201%202%203.md)
+* [digunakan kon crusher dubai](digunakan%20kon%20crusher%20dubai.md)
+* [hummel lebih sedih di ohio](hummel%20lebih%20sedih%20di%20ohio.md)
+* [tanaman penghancur di sri lanka](tanaman%20penghancur%20di%20sri%20lanka.md)
+* [pembekal peralatan kilang menghancurkan](pembekal%20peralatan%20kilang%20menghancurkan.md)

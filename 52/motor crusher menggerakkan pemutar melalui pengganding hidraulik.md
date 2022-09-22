@@ -1,0 +1,116 @@
+# motor crusher menggerakkan pemutar melalui pengganding hidraulik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Aktifitas Crusher Menjamur, Camat Mengaku Belum Tahu .](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Aktifitas Crusher Menjamur, Camat Mengaku Belum Tahu .
+"Perusahaan Penambang Diduga Dibekingi Oknum Pejabat" Brang Ene, KOBAR - Deklarasi Brang Ene sebagai wilayah Asri yang dicanangkan otoritas wilayah setempat, nampaknya terancam terhalang dengan maraknya penambangan galian C di wilayah itu. Proyek yang diketahui belum mendapat restu dari penguasa kecamatan itu tumbuh subur tak terbendung. Hal ini semakin menguat, ketika .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Motor yang Digunakan Dalam Crushers](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Motor yang Digunakan Dalam Crushers
+motor untuk jaw crusher - accinsa. Jaw Crusher bekerja mengandalkan kekuatan motor . Melalui roda motor, poros eksentrik digerakkan oleh sabuk segitiga dan slot wheel untuk terdiri dari jaw plate, jaw plate yang bergerak dan side-lee board dapat dihancurkan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fungsi Dan Aplikasi Alat Berat - Scribd](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Fungsi Dan Aplikasi Alat Berat - Scribd
+FUNGSI DAN APLIKASI ALAT BERAT DAN ATTACHMENTNYA 2.1. KEGUNAAN ALAT-ALAT BERAT Penggunaan alat-alat berat yang kurang tepat dengan kondisi dan situasi lapangan pekerjaan akan berpengaruh berupa kerugian antara lain rendahnya produksi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB III - Scribd](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## BAB III - Scribd
+13. Motor listrik: Untuk menggerakkan atau memutar basket 14. Ruang gula: Tempat gula atau kristal hasil pemutaran. Strata 1 Teknik Mesin Fakultas Teknik Universitas Jember Page 91 LAPORAN KERJA PRAKTEK 2 PT. PERKEBUNAN NUSANTARA XI
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![jenis jenis crusher dan kegunaannya](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## jenis jenis crusher dan kegunaannya
+Jenis Jenis Crusher Dan Kegunaannya jenis jenis crusher dan kegunaannya jenis sep ripper merupakan traktor dengan fungsi utama sebagai alat bajak yang stone crusher merupakan alat berat yang digunakan untuk nbspjenis jenis crusher dan kegunaannyajenis 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Crusher - DUNIAPEMBANGKITLISTRIK - Lowongan Kerja .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## Crusher - DUNIAPEMBANGKITLISTRIK - Lowongan Kerja .
+Jaw Crusher bekerja mengandalkan kekuatan motor . Melalui roda motor, poros eksentrik digerakkan oleh sabuk segitiga dan slot wheel untuk terdiri dari jaw plate, jaw plate yang bergerak dan side-lee board dapat dihancurkan dan diberhentikan membuat jaw plate bergerak seirama.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kamus Pertambangan 2011 [en5zrvm58eno]](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Kamus Pertambangan 2011 [en5zrvm58eno]
+KAMUS PERTAMBANGAN Penyunting : I G. Ngurah Ardha Nining Sudini Ningrum Retno Damayanti Slamet Suprapto Sri Handayani Tatang Wahyudi PUSLITBANG TEKNOLOGI MINERAL DAN BATUBARA 2011 PUSLITBANG TEKNOLOGI MINERAL DAN
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Berbagai Jenis Crusher Yang Digunakan pada Industri .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Berbagai Jenis Crusher Yang Digunakan pada Industri .
+Nantinya kedua peremuk itu akan berputar semakin mendekat, sehingga material akan tergerus secara berkala hingga kemudian menjadi ukuran lebih kecil melalui mulut di bagian bawah. Cone Crusher Biasanya alat ini dipergunakan pada secondary crushing, dan merupakan modifikasi dari Gyratory Crusher.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![perhitungan pada crusher](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## perhitungan pada crusher
+Crusher Perhitungan Crusher Perhitungan konstruksi beton perencanaan bangunan sekolahan  perhitungan konstruksi mesin crusher. cara perhitungan daya pada mesin produksi di pabrik. Chat Now menentukan perhitungan gigi gear box pada crusher plant pdf menentukan perhitungan gigi gear box pada crusher plant pdf. judul tesis skripsi informatika 171; contoh program source code. contoh .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Crusher | Mengenal Ilmu Teknik Sipil](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Crusher | Mengenal Ilmu Teknik Sipil
+Crusher berfungsi untuk memecahkan batuan alam menjadi ukuran yang lebih kecil sesuai spesifikasi yang dibutuhkan. Selain memisahkan batuan hasil pemecahan dengan menggunakan saringan atau screen. Crusher terdiri dari beberapa bagian yaitu crusher 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ Kamus Teknik [6nq81z5r39nw]](https://github.com/technlg/images/blob/main/61.jpg)</a>
+##  Kamus Teknik [6nq81z5r39nw]
+1 09 01n05 . Bandung. ~n.A 2(;O'iS:.2.010 __C~. KAMUS DICTIONARY OF ENGINEERING COMPLETE EDITION KAMUS DICTIONARY OF ENGINEERING COMPLETE EDITION Berisikan Istilah-istilah dalam bidang : TEKNIK MESIN, TEKNIK INDUSTRI, I
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![hidrolik motor crusher - Indonesia penghancur](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## hidrolik motor crusher - Indonesia penghancur
+hidrolik motor crusher 9.7 （total: 10 ） 3720 peringkat 7440 pengguna Ulasan hidrolik motor crusher Ini adalah daftar solusi tentang hidrolik motor crusher, dan ada tombol obrolan yang Anda dapat menghubungi yang sesuai solusi expert.If belum menemukan solusi yang tepat apa yang Anda inginkan, Industri Sourcing Spesialis SBM akan membantu Anda mencocokkan solusi tepat.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA 2.1 Sistem Stone Crusher](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## BAB II TINJAUAN PUSTAKA 2.1 Sistem Stone Crusher
+BAB II TINJAUAN PUSTAKA 2.1 Sistem Stone Crusher Dalam stone crusher ada beberapa cara yang digunakan untuk mendapatkan batu pecah (gradasi) yang sesuai dengan yang dikehendaki, yaitu dari ukuran yang paling besar menjadi ukuran yang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Items where Subject is "T Technology > TJ Mechanical .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## Items where Subject is "T Technology > TJ Mechanical .
+FAISOL, AHMAD (2008) PERANCANGAN ALAT PEMUTAR ES PUTER KAPASITAS 15 LITER. Other thesis, University of Muhammadiyah Malang. FAJAR SODIQ, AHMAD (2008) KARAKTERISTIK PENYERAPAN PANAS AIR OLEH GELEMBUNG UDARA
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![menginstal crusher hidrolik | Menghancurkan peralatan .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## menginstal crusher hidrolik | Menghancurkan peralatan .
+menginstal tanaman crusher bagaimana hpc hydraulic cone crusher cs series cone crusher hcs90 series cone crusher pcl-vsi crusher oleh slip belt di tempat kerja menginstal poros indonesia-tin crusher. Rincian lainnya atau bantuan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![nota-teknologi-kejuruteraan-versi-doc.docx](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## nota-teknologi-kejuruteraan-versi-doc.docx
+MOTOR SIRI MOTOR MAJMUK MOTOR PIRAU JENIS- JENIS MOTOR A.U Berdasarkan fasa voltan masukan dan jenis rotor yang digunakan Voltan masukan 1 fasa dan 3 fasa @rotor jenis sangkar tupai atau pemutar belitan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tugas PTK 5 Oktober 2012 | Yudha Prasetyawan](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## Tugas PTK 5 Oktober 2012 | Yudha Prasetyawan
+E-Bike Indo kemudian mengujikan 600 buah dinamo brushless DC500W dengan alat pemutar manual, sebanyak 1500 putaran,dengan pengecekan setiap 100 putaran. Berdarsarkan pengujian ini, perusahaan mendapatkan data yang disajikan dalam grafik mengenai failure density, hazard rate, dan juga reliability atau keandalan dari dinamo Brushless DC500W.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Topik 1:: Pa_Bptv_Kpm M-Te](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Topik 1:: Pa_Bptv_Kpm M-Te
+Scribd is the world's largest social reading and publishing site. PA_BPTV_KPM TOPIK 1: M-TE K_TEKNOLOGI KEJURUTERAAN M-TE K_TEKNOLOGI KEJURUTERAAN PA_BPTV_KPM TOPIK 2: TEKNOLOGI KEJURUTERAAN (NOTA RINGKAS & PETA MINDA)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![The Proteus Project at NYU](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## The Proteus Project at NYU
+kamu > 're kamu > 've bertangan > -armed berpipi > -cheeked cerna > -digested hadam > -digested dimensi > -dimensional berenjin > -engined bermata > -eyed berjari > -fingered berkaki > -footed panjang > -footer tanpa > -free berira > -grained autograf > -graph litograf > -graph telegraf > -graph telegraph > -graph berambut > -haired berbulu > -haired bertangan > -handed bertumit > -heeled 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![AN INDONESIAN-ENGLISH-JAPANESE DICTIONARY .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## AN INDONESIAN-ENGLISH-JAPANESE DICTIONARY .
+Gelombang yang merambat melalui udara oleh ledakan (kecil) pemicu peledakan; gelombang ini merambat dengan kecepatan suara dan menghasilkan suara seperti dentuman meriam shock wave; The wave sent out through the air by the discharge of the shot initiating an explosion; this wave travels with the velocity of sound and produces to the human ear the noise like boom of a cannon
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Tugas Individu I Elisabeth S. Wau () - Scribd](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Tugas Individu I Elisabeth S. Wau () - Scribd
+Melalui roda motor, poros eksentrik digerakkan oleh sabuk segitiga dan slot wheel untuk membuat jaw plate bergerak seirama. Pada Jaw crusher terdapat dua rahang penghancur yang terdiri atas sekumpulan KETERANGAN dua jenis rahang vertikal yang salah satunya bersifat tetap sedangkan yang lainnya TAMBAHAN bersifat dapat digerakkan maju mundur melalui mekanisme cam (nok) dan pitman.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Ku Kabarin](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Ku Kabarin
+Sarjana thesis, UIN Sunan Gunung Djati Bandung.<br /><br />Andini, Rima : The Comparison of Illocutionary Act in Obama's and Jokowi's Presidential Election Victory Speeches. <br /><br />Angelicka, Reyka : The use of illocutionary acts in Dan Fogelmans
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pembangkit listrik tenaga uap.docx - Scribd](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Pembangkit listrik tenaga uap.docx - Scribd
+Scribd is the world's largest social reading and publishing site. Much more than documents. Discover everything Scribd has to offer, including books and audiobooks .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ Nota Teknologi Kejuruteraan Versi Doc](https://github.com/technlg/images/blob/main/55.jpg)</a>
+##  Nota Teknologi Kejuruteraan Versi Doc
+nota teknologi kejuruteraan bagi tingkatan 4 dan 5 by jerry PA_BPTV_KPM TOPIK 1: M-TEK_TEKNOLOGI KEJURUTERAAN M-TEK_TEKNOLOGI KEJURUTERAAN PA_BPTV_KPM TOPIK 2: TEKNOLOGI KEJURUTERAAN (NOTA RINGKAS & PETA MINDA) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kamus Teknik - Scribd](https://github.com/technlg/images/blob/main/27.jpg)</a>
+## Kamus Teknik - Scribd
+Scribd adalah situs bacaan dan penerbitan sosial terbesar di dunia. 1 09 01n05 .Bandung. 2(;O'iS :.2.010 ~ n .A __C ~ . KAMUS DICTIONARY OF ENGINEERING COMPLETE EDITION KAMUS DICTIONARY OF ENGINEERING COMPLETE EDITION Berisikan Istilah-istilah dalam bidang : TEKNIK MESIN, TEKNIK INDUSTRI, I TEKNIK SIPIL, TEKNIK ELEKTRO, TEKNIK PERKAPALAN TEKNIK .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TA Ibnu Sukron - Scribd](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## TA Ibnu Sukron - Scribd
+2.1.3 Motor Listrik/Penggerak Penggerak putaran poros yang digunakan adalah sebuah motor listrik yang mengubah energi listrik menjadi energi mekanik berupa putaran poros. Torsi yang dihasilkan dari putaran motor listrik tersebut diperbesar dengan cara mereduksinya dengan menggunakan rangkaian puli, motor induksi dapat dilihat pada gambar 2.9
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [keluk produk penghancur impak](keluk%20produk%20penghancur%20impak.md)
+* [hentak hentak penghancur plat](hentak%20hentak%20penghancur%20plat.md)
+* [kilang untuk mengisar mineral](kilang%20untuk%20mengisar%20mineral.md)
+* [kejadian emas di celah etiopia](kejadian%20emas%20di%20celah%20etiopia.md)
+* [pengeluar asid fosforik super di dunia](pengeluar%20asid%20fosforik%20super%20di%20dunia.md)
+* [peralatan yang digunakan untuk pengambilan bijih emas](peralatan%20yang%20digunakan%20untuk%20pengambilan%20bijih%20emas.md)
+* [peralatan membuat batu bata buatan jerman](peralatan%20membuat%20batu%20bata%20buatan%20jerman.md)
+* [gambar tanaman lombong granit](gambar%20tanaman%20lombong%20granit.md)
+* [prinsip kerja skrin bergetar](prinsip%20kerja%20skrin%20bergetar.md)
+* [peralatan melombong emas bc](peralatan%20melombong%20emas%20bc.md)

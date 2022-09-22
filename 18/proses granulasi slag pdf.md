@@ -1,0 +1,164 @@
+# proses granulasi slag pdf
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Proses Penyembuhan Luka - Medicine Stuffs](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## Proses Penyembuhan Luka - Medicine Stuffs
+Proses migrasi ini hanya boleh terjadi ke arah yang rendah atau datar. Epitel tak dapat bermigrasi ke arah yang lebih tinggi. Jika epitel sudah saling menyentuh dan menutup luka maka proses fibroplasias dengan pembentukan jaringan granulasi berhenti.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) KARAKTERISIK GRANUL DAN TABLET .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## (PDF) KARAKTERISIK GRANUL DAN TABLET .
+PDF | On Aug 1, 2005, Ilma Nugrahani and others published KARAKTERISIK GRANUL DAN TABLET PROPRANOLOL HIDROKLORIDA DENGAN METODE GRANULASI PELEBURAN | Find, read and cite all the research you need 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA - UMP](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## BAB II TINJAUAN PUSTAKA - UMP
+mempengaruhi proses disolusi meliputi metode granulasi atau prosedur pembuatan, ukuran granul, interaksi zat aktif dan eksipien, pengaruh gaya kempa, pengaruh penyimpanan pada laju disolusi (Siregar, 2010). d. Faktor yang berkaitan dengan alat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pengaruh metode granulasi peleburan terha- dap sifat fisikokimia .](https://github.com/technlg/images/blob/main/25.jpg)</a>
+## Pengaruh metode granulasi peleburan terha- dap sifat fisikokimia .
+Metode granulasi peleburan relatif praktis karena jumlah pengikat dapat ditentukan dengan tepat sejak awal dengan proses yang ringkas (Parikh, 1997; Tiwari, et.al., 2003). Permasalahan yang dapat timbul pada proses granulasi peleburan adalah resiko
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KRISTALISASI DAN KARAKTERISASI KRISTAL PARASETAMOL](https://github.com/technlg/images/blob/main/21.jpg)</a>
+## KRISTALISASI DAN KARAKTERISASI KRISTAL PARASETAMOL
+proses pembuatan tablet yang mengunakan kristal bentuk ini dibuat menggunakan proses granulasi basah dan membutuhkan bahan tambahan berupa plasticizer pada formulasinya. Sebaliknya, bentuk ortorombik tersusun atas molekul-molekul yang terikat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Tablet Manufacturing Process Method and .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## (PDF) Tablet Manufacturing Process Method and .
+granulasi, proses pengempaan tablet, dan pengalaman yang cu kup dalam hal proses pembuatan tablet . Oleh karena hal tersebut, review artike l ini membahas mengenai
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB I PENDAHULUAN - UMS](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## BAB I PENDAHULUAN - UMS
+Proses ini disebut sebagai granulasi (Siregar, 2010). Granulasi serbuk memberikan aliran bebas, meningkatkan densitas dan memperbaiki kompresi serbuk selama pembentukan tablet (Ansel, 2010).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MODUL PRAKTIKUM SOLID - UHAMKA](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## MODUL PRAKTIKUM SOLID - UHAMKA
+Granulasi adalah salah satu metode dalam pembuatan tablet secara kempa tidak langsung. Granulasi terbagi dua macam, yaitu: 1. Granulasi basah dan 2. Granulasi kering Granulasi basah adalah proses dimana bahan‐bahan dalam formulasi tablet dicampur
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA A. TABLET](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## BAB II TINJAUAN PUSTAKA A. TABLET
+proses granulasi dan pengeringan, peralatan yang digunakan lebih sedikit. Prosedur yang digunakan pada cetak langsung pada dasarnya adalah penyaringan, pengadukan dan pencampuran. Namun, kerugian metode ini adalah zat aktif dan bahan tambahan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![STUDY VALUASI SMELTER PENGOLAHAN NIKEL MELALUI .](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## STUDY VALUASI SMELTER PENGOLAHAN NIKEL MELALUI .
+Proses pyrometalurgy yang dilakukan Perusahaan banyak melibatkan reaksi pembakaran, mulai dari pengeringan, kalsinasi dan reduksi, peleburan dan granulasi (pada proses pengeringan nikel granul). Pada proses pengeringan, kalsinasi dan reduksi serta
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Metode Granulasi Basah Dalam Pembuatan Tablet .](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## (PDF) Metode Granulasi Basah Dalam Pembuatan Tablet .
+Granulasi BasahGranulasi basah dalah proses menambahkan cairan pada suatu serbuk atau campuran serbuk alam suatu wadah yang dilengkapi dengan pengadukan yang akan menghasilkan granul (Siregar, 2008). Dalam proses granulasi basah zat berkhasiat, pengisi dan penghancur dicampur homogen, lalu dibasahi dengan larutan pengikat, bila perlu ditambahkan pewarna.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB IV HASIL PENELITIAN DAN PEMBAHASAN 4.1 Hasil .](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## BAB IV HASIL PENELITIAN DAN PEMBAHASAN 4.1 Hasil .
+setelah keluar dari furnace, keduanya akan diproses granulasi di slag granulation. Dan nantinya slag dari smelting furnace akan di kirim ke industri semen, sedangkan slag converting furnace akan diolah kembali di smelting furnace. Proses pada anode furnace
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB I PENDAHULUAN A. Latar Belakang - UNWAHAS](https://github.com/technlg/images/blob/main/65.jpg)</a>
+## BAB I PENDAHULUAN A. Latar Belakang - UNWAHAS
+Proses-proses pokok dalam granulasi basah yaitu, 12 pengayakan dan pencampuran serbuk, penambahan larutan bahan pengikat ke campuran serbuk untuk membentuk massa dengan ukuran yang cukup basah, pengayakan dengan ukuran granul yang, 2, 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PABRIK PUPUK TRIPLE SUPERPHOSPHATE DENGAN PROSES GRANULASI PRA .](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## PABRIK PUPUK TRIPLE SUPERPHOSPHATE DENGAN PROSES GRANULASI PRA .
+Dengan Proses Granulasi" ini disusun berdasarkan pada beberapa sumber yang berasal dari beberapa literatur, data-data, majalah kimia, dan internet. Pada kesempatan ini kami mengucapkan terima kasih atas segala bantuan baik berupa saran, sarana1. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KARAKTERISIK GRANUL DAN TABLET PROPRANOLOL HIDROKLORIDA DENGAN METODE GRANULASI .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## KARAKTERISIK GRANUL DAN TABLET PROPRANOLOL HIDROKLORIDA DENGAN METODE GRANULASI .
+Proses granulasi peleburan di-lakukan sama untuk semua formula, namun menghasilkan ukuran dan warna granul yang tidak sama. Semakin tinggi kadar carnauba wax, proses granulasi semakin cepat, Tabel 2 mencantumkan keseluruhan hasil evaluasi granul
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA 2.1 Hard Candy - UKSW](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## BAB II TINJAUAN PUSTAKA 2.1 Hard Candy - UKSW
+atau larutan gula, proses solidifikasi, proses granulasi/kristalisasi, pengayakan, pengeringan dan pengemasan (Mustaufik dan Haryanti, 2006). Gula semut kelapa juga kaya akan mineral, perbedaan jumlah kandungan mineral mikro dan makro antara dapat dilihat 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA A. GRANUL](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## BAB II TINJAUAN PUSTAKA A. GRANUL
+Proses granulasi dapat dilakukan dengan metode granulasi kering dan granulasi basah (7). Prinsip dari granulasi basah adalah membasahi serbuk atau campuran serbuk yang diinginkan dengan pasta pengikat, dan diayak dengan ayakan mesh tertentu untuk 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KONSEP DASAR LUKA FISIOLOGI PENYEMBUHAN LUKA TIPE .](https://github.com/technlg/images/blob/main/14.jpg)</a>
+## KONSEP DASAR LUKA FISIOLOGI PENYEMBUHAN LUKA TIPE .
+•Proses granulasi (untuk mengisi ruang kosong pada luka). •Angiogenesis (pertumbuhan kapiler baru) tujuannya untuk suplai oksigen kedalam jaringan •Proses kontraksi (untuk menarik kedua tepi luka agar saling berdekatan).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Makalah Modifikasi Granulasi Slag](https://github.com/technlg/images/blob/main/38.jpg)</a>
+## Makalah Modifikasi Granulasi Slag
+Slag Granulation System Abrir el menú de navegación Cerrar sugerencias Buscar Buscar es Change Language Cambiar idioma Idioma English español (seleccionado) português Deutsch français
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![GRANULASI ABU LAYANG BATUBARA MENGGUNAKAN .](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## GRANULASI ABU LAYANG BATUBARA MENGGUNAKAN .
+Proses aktifasi dilakukan untuk menurunkan tingkat kristalinitas abu layang sehingga meningkatkan kemampuan adsorpsi. Proses granulasi dilakukan dengan menambahkan karagenan sebagai binder dengan kosentrasi optimal sebesar 20%.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB I PENDAHULUAN 1.1. Latar Belakang](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## BAB I PENDAHULUAN 1.1. Latar Belakang
+Proses granulasi yang dipilih dalam penelitian ini adalah metode granulasi basah, karena keuntungan proses granulasi basah adalah memudahkan dalam penggunaannya (Kania dkk., 2015). Selain itu, metode granulasi basah dianggap paling sesuai untuk
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LAPORAN PRAKTIKUM 1.pdf - LAPORAN PRAKTIKUM .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## LAPORAN PRAKTIKUM 1.pdf - LAPORAN PRAKTIKUM .
+Berbagai proses granulasi telah dikembangkan dari metode konvensioanal seperti slugging dan granulasi dengan bahan pengikat mucilago amili hingga pembentukan granul dengan peralatan terkini seperti spray dry dan freeze dry (Ilma, 2002).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Tablet Manufacturing Process Method and Defect .](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## (PDF) Tablet Manufacturing Process Method and Defect .
+granulasi, proses pengempaan tablet, dan pengalaman yang cu kup dalam hal proses pembuatan tablet . Oleh karena hal tersebut, review artike l ini membahas mengenai
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEKNOLOGI SEDIAAN FARMASI SOLID - UHAMKA](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## TEKNOLOGI SEDIAAN FARMASI SOLID - UHAMKA
+Granulasi adalah salah satu metode dalam pembuatan tablet secara kempa tidak langsung. Granulasi terbagi dua macam, yaitu: 1. Granulasi basah dan 2. Granulasi kering Granulasi basah adalah proses dimana bahan-bahan dalam formulasi tablet 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KIMIA FORMULASI TEKNOLOGI SEDIAAN PADAT](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## KIMIA FORMULASI TEKNOLOGI SEDIAAN PADAT
+GRANULASI BASAH A. TUJUAN Agar mahasiswa dapat mengetahui bagaimana proses pembuatan tablet dengan menggunakan metode granulasi basah B. FORMULA Formula 1 Saccharum lactis 100 g Amilum manihot 100 g Musilago amili (10%
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENJELASAN GRANULASI, DEFINISI, TUJUAN DAN .](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## PENJELASAN GRANULASI, DEFINISI, TUJUAN DAN .
+Granulasi yaitu dari kata Granul yang artinya : merupakan gumpalan partikel - partikel yang lebih kecil umumnya berbentuk tidak merata dan seperti partikel tunggal/satu yang lebih besar jadi Granulasi adalah sebuah proses pembesaran ukuran partikel individual atau campuran serbuk untuk menghasilkan sebuah campuran obat dan eksipien dalam bentuk granul yang lebih besar dan lebih kuat dari pada 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![TEKNOLOGI FARMASI SEDIAAN SOLID (DEA61031)](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## TEKNOLOGI FARMASI SEDIAAN SOLID (DEA61031)
+Metode Granulasi Basah Granulasi basah adalah proses dimana cairan ditambahkan pada serbuk obat atau campuran serbuk obat dan eksipien dalam bejana yang dilengkapi atau )). (). (. 2) PRAKTIKUM TFS SOLID TA 2019/2020. > sediaan > m 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB I TINJAUAN PUSTAKA - Repository UNISBA](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## BAB I TINJAUAN PUSTAKA - Repository UNISBA
+Granulasi basah merupakan suatu proses penambahan cairan ke dalam massa serbuk dan diaduk dengan alat yang sesuai untuk menghasilkan aglomerat repository.unisba.ac.id.,) 3,, 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(DOC) PEMBUATAN TABLET PARASETAMOL DENGAN .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## (DOC) PEMBUATAN TABLET PARASETAMOL DENGAN .
+Granulasi Granulasi merupakan proses peningkatan ukuran partikel dengan cara melekatkan partikel-partikel sehingga bergabung dan membentuk ukuran yang lebih besar . Pada tahap ini dilakukan pencampuran larutan pengikat dengan serbuk yang sudah di mixing pada proses mixing untuk membentuk massa basah.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB I PENDAHULUAN 1.1 Latar Belakang](https://github.com/technlg/images/blob/main/46.jpg)</a>
+## BAB I PENDAHULUAN 1.1 Latar Belakang
+Granulasi basah adalah proses menambahkan cairan pada suatu serbuk atau campuran serbuk dalam suatu wadah yang dilengkapi dengan pengadukan yang akan menghasilkan aglomerasi atau granul. Alasan memilih menggunakan metode3 sesuai untuk 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## BAB II TINJAUAN PUSTAKA
+Granulasi merupakan proses dimana terdapat partikel-partikel halus secara bersama-sama membentuk partikel lebih besar. 2.3.1 Metode Granulasi Basah Granulasi basah merupakan metode yang digunakan untuk memperbaiki sifat alir dan dengan metode 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## BAB II TINJAUAN PUSTAKA
+Granulasi adalah proses perlekatan partikel serbuk menjadi partikel yang lebih besar. Tujuan proses granulasi adalah mencegah segregasi campuran serbuk, memperbaiki sifat alir serbuk atau campuran, meningkatkan densitas ruahan memperbaiki penanpilan 8 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MESIN FARMASI: METODE | PROSES GRANULASI](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## MESIN FARMASI: METODE | PROSES GRANULASI
+Dalam proses farmasi memang sangatlah unik dari peroses tahapan satu ketahapan berikutnya. Namun disini saya tidak akan mengacak ke proses lain agar pembahasan fokus hanya tertuju pada proses granulasi. Metode granulasi adalah proses pengolahan produk dengan cara diayak menggunakan mesin oscillating granulator. Yang digunakan dalam proses produksi tablet meliputi granulasi basah, granulasi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA - Unimus](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## BAB II TINJAUAN PUSTAKA - Unimus
+granulasi yang dapat berkembang menjadi polip di ruang telinga tengah. Jika proses inflamasi, ulserasi, infeksi dan terbentuknya jaringan granulasi terus berlanjut maka akan merusak jaringan sekitarnya, termasuk akan menyebabkan perforasi gendang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PERBANDINGAN PENGGUNAAN METODE GRANULASI BASAH .](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## PERBANDINGAN PENGGUNAAN METODE GRANULASI BASAH .
+granulasi basah terdapat zat berair yang dapat memicu reaksi hidrolisis parasetamol, karena itu perlu diteliti bagaimanakah perbandingan metode granulasi basah dan granulasi kering berpengaruh terhadap stabilitas zat aktif tablet parasetamol. B. Perumusan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA A. Tablet](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## BAB II TINJAUAN PUSTAKA A. Tablet
+Granulasi basah adalah proses pembuatan serbuk halus menjadi granul dengan bantuan larutan bahan pengikat. Pembuatan tablet dengan metode Granulasi Basah digunakan untuk membuat tablet dengan zat aktif yang yang jelek, tahan panas, dan tahan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA 2.1 Uraian Tumbuhan 2.1.1 Pati jagung](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## BAB II TINJAUAN PUSTAKA 2.1 Uraian Tumbuhan 2.1.1 Pati jagung
+(Anief, 1994).Granulasi basah adalah proses menambahkan cairan pada suatu serbuk atau campuran serbuk dalam suatu wadah yang dilengkapi dengan pengadukan yang akan menghasilkan granul (Lachman, dkk., 1994). b. Granulasi kering Granulasi kering
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PABRIK PUPUK TRIPLE SUPERPHOSPHATE DENGAN .](https://github.com/technlg/images/blob/main/40.jpg)</a>
+## PABRIK PUPUK TRIPLE SUPERPHOSPHATE DENGAN .
+Seleksi & Uraian Proses --- II - 12 II.3. Uraian Proses Flowsheet Pengembangan : Pada pra rencana pabrik triple superphosphate dengan proses granulasi ini, direncanakan dibagi menjadi 3 Unit pabrik, dengan pembagian : 1. Unit Pengendalian Bahan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [pengeluar penghantar di oman](pengeluar%20penghantar%20di%20oman.md)
+* [kaedah pemasangan pengkelasan putar pengisar bola](kaedah%20pemasangan%20pengkelasan%20putar%20pengisar%20bola.md)
+* [adakah tanaman gipsum di quetta](adakah%20tanaman%20gipsum%20di%20quetta.md)
+* [menggunakan asid asetik untuk mengekstrak emas](menggunakan%20asid%20asetik%20untuk%20mengekstrak%20emas.md)
+* [projek baru unit penggilingan simen di meza allahabad](projek%20baru%20unit%20penggilingan%20simen%20di%20meza%20allahabad.md)
+* [kilang penapisan emas di jerman](kilang%20penapisan%20emas%20di%20jerman.md)
+* [panduan untuk perlombongan kuari](panduan%20untuk%20perlombongan%20kuari.md)
+* [kilang penghancur bergerak di sri lanka](kilang%20penghancur%20bergerak%20di%20sri%20lanka.md)
+* [cara membuat penghancur rahang kecil](cara%20membuat%20penghancur%20rahang%20kecil.md)
+* [bagaimana memilih taufan mencuci arang batu](bagaimana%20memilih%20taufan%20mencuci%20arang%20batu.md)

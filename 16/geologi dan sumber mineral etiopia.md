@@ -1,0 +1,168 @@
+# geologi dan sumber mineral etiopia
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Fantastis! Ini Dia Jumlah 'Harta Karun' Tambang di NKRI](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Fantastis! Ini Dia Jumlah 'Harta Karun' Tambang di NKRI
+Nikel sumber daya sebesar 11.899 juta ton dan cadangan sebesar 4.352 juta ton. Bauksit sumber daya sebesar 5.148 juta ton dan cadangan 2.781 juta ton. Menurut Eko, ke depan, terkait dengan eksplorasi mineral di tahun 2021, Badan Geologi akan menganggarkan evaluasi potensi mineral ini baik logam maupun non logam.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![DEPARTEMEN ENERGI DAN SUMBER DAYA MINERAL](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## DEPARTEMEN ENERGI DAN SUMBER DAYA MINERAL
+4. Direktorat Jenderal Mineral dan Batubara. 5. Direktorat Jenderal Energi Baru Terbarukan dan Konservasi Energi. 6. Inspektorat Jenderal. 7. Badan Geologi. 8. Badan Penelitian dan Pengembangan Energi dan Sumber Daya Mineral. 9. BadanMineral. 11.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Geologi Dan Pengenalan Mineral | Fachrul Rozy E A .](https://github.com/technlg/images/blob/main/23.jpg)</a>
+## (PDF) Geologi Dan Pengenalan Mineral | Fachrul Rozy E A .
+1.2 Maksud dan Tujuan Prkatikum 1.2.1 Maksud Maksud dari praktikum ini adalah untuk mengetahui dan memahami proses Geologi dan mengetahui jenis-jenis mineral. 1.2.2 Tujuan Tujuan dari praktikum ini, yaitu : Mengetahui pemahaman
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KEPUTUSAN MENTERI ENERGI DAN SUMBER DAYA MINERAL .](https://github.com/technlg/images/blob/main/1.jpg)</a>
+## KEPUTUSAN MENTERI ENERGI DAN SUMBER DAYA MINERAL .
+Menetapkan : KEPUTUSAN MENTERI ENERGI DAN SUMBER DAYA MINERAL TENTANG STANDARDISASI KOMPETENSI TENAGA TEKNIK KHUSUS BIDANG GEOLOGI DAN PERTAMBANGAN.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jurnal Geologi dan Sumberdaya Mineral](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Jurnal Geologi dan Sumberdaya Mineral
+Hubungan Kelompok Maseral Liptinit dan Vitrinit dengan Tipe Kerogen Batuan Sumber Hidrokarbon pada Serpih Formasi Kelesa Bagian Atas, Kuburan Panjang, Riau This study focuses on correlation of liptinite and vitrinite maceral to kerogen type of shale from Kelesa Formation in Kuburan Panjang areas, Sumai sub-basin, Central Sumatra Basin.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Buletin Sumber Daya Geologi](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Buletin Sumber Daya Geologi
+PENGANTAR REDAKSI Buletin Sumber Daya Geologi kembali hadir di akhir Bulan November 2020 berupa volume.15 nomor.3.Berbeda dengan edisi-edisi sebelumnya, kali ini lima makalah yang hadir mengulas tentang potensi mineral, batubara dan panas bumi 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Garuda - Garba Rujukan Digital](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Garuda - Garba Rujukan Digital
+Jurnal Geologi dan Sumberdaya Mineral (JGSM) is an Indonesian scientific journal published by the Center for Geological Survey, Geological Agency, Ministry of Energy and Mineral Resources. The journal receives Indonesian or English articles. Those articles are
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jurnal Geologi dan Sumberdaya Mineral - .](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Jurnal Geologi dan Sumberdaya Mineral - .
+Tinjauan Geologi dan Potensi Batubara Daerah Sulawesi Selatan, Jurnal Sumber Daya Geologi, 15 (1): . Parkinson, C.D., 1991. The petrology stucture and geologic history of the metamorphic rocks of Central Sulawesi, Indonesia 17 p, http : // en – wiki books
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jurnal Geologi dan Sumberdaya Mineral](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## Jurnal Geologi dan Sumberdaya Mineral
+JGSM Jurnal Geologi dan Sumberdaya Mineral Vol.20. No.3 Agustus 2019 hal 143 - 152 212 PENDAHULUAN Kala Eosen (50-30 jt tahun lalu) merupakan awal dimulainya kegiatan magmatik di Pulau Jawa dan menghasilkan produk berupa jejak sumbu
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENDAYAGUNAAN MINERAL UNTUK MENJADI .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## PENDAYAGUNAAN MINERAL UNTUK MENJADI .
+Buletin Sumber Daya Geologi merupakan Makalah berkala ilmiah terakreditasi LIPI bidang geologi, geofisika, geokimia, pertambangan dan bidang ilmu kebumian lainnya yang terkait. Makalah ini terbit tiga Abstract Batu mulia atau permata adalah suatu mineral 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Potensi Besar, Badan Geologi Terus Gali Isi Perut Bumi RI](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Potensi Besar, Badan Geologi Terus Gali Isi Perut Bumi RI
+JAKARTA - Badan Geologi Kementerian Energi dan Sumber Daya Mineral (ESDM) terus melakukan inventarisasi dan eksplorasi potensi sumber daya alam. Sumber daya yang telah dan sedang diinventarisir dan dieksplorasi oleh Badan Geologi diantaranya minyak dan gas bumi (migas), mineral dan batubara (minerba), panas bumi, hingga logam tanah jarang (rare earth element/REE).
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mineral Adalah - Pengertian, Sumber, Jenis, Klasifikasi & .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Mineral Adalah - Pengertian, Sumber, Jenis, Klasifikasi & .
+Mineral Adalah – Pengertian, Sumber, Jenis, Klasifikasi & Contoh– DosenPendidikan.Com – Mineral merupakan padatan senyawa kimia homogeny, non-organik, yang mempunyai bentuk teratur ( sistem kristal ) dan terbentuk secara alami. Untuk istilah mineral
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kementerian Energi dan Sumber Daya Mineral](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Kementerian Energi dan Sumber Daya Mineral
+Energi dan Sumber Daya Mineral 8 2011 - 2011 Peneliti Ahli Madya Pusat Penelitian dan Pengembangan Teknologi Minyak dan Gas Bumi "LEMIGAS" - Badan Penelitian dan Pengembangan Energi dan Sumber Daya Mineral 9 2010 - 2011 Kepala Bidang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Badan Geologi Temukan Kandungan Logam Tanah .](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## Badan Geologi Temukan Kandungan Logam Tanah .
+Jakarta: Badan Geologi Kementerian Energi dan Sumber Daya Mineral (ESDM) menemukan potensi kandungan logam tanah jarang (rare earth) di lumpur Lapindo, .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SARI - ESDM](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## SARI - ESDM
+dan melengkapi Bank Data Sumber Daya Mineral Nasional dengan data terbaru dan akurat di Pusat Sumber Daya Geologi serta sebagai dasar pertimbangan dalam penentuan wilayah pertambangan. Penyelidikan dilakukan pada 3 (tiga) blok yaitu Mokong, Teluk Santong dan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PEMBANGUNAN DATABASE SUMBER DAYA MINERAL DAN .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## PEMBANGUNAN DATABASE SUMBER DAYA MINERAL DAN .
+Makalah Buletin Sumber Daya Geologi, Bidang Informasi 1 PEMBANGUNAN DATABASE SUMBER DAYA MINERAL DAN ENERGI BERBASIS ELEKTRONIK Calvin K.K. Gurusinga, Denni W, Indra.S, Qomariah Bidang Informasi SARI Mineral merupakan salah
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kementerian Energi dan Sumber Daya Mineral](https://github.com/technlg/images/blob/main/47.jpg)</a>
+## Kementerian Energi dan Sumber Daya Mineral
+Kementerian Energi dan Sumber Daya Mineral Daftar Riwayat Hidup Dadan Kusdiana Sumedang, 29 Desember 1968 Pembina Utama Madya / IV/d 01 April 2018 Kepala Badan Penelitian dan Pengembangan 1 2019 - Sekarang Kepala
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Modul 2 GEOLOGI DASAR - Kementerian Pekerjaan Umum](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## Modul 2 GEOLOGI DASAR - Kementerian Pekerjaan Umum
+MODUL 2 GEOLOGI DASAR PUSAT PENDIDIKAN DAN PELATIHAN SUMBER DAYA AIR DAN KONSTRUKSI i KATA PENGANTAR Bandung, Oktober 2019 Kepala Pusat Pendidikan dan Pelatihan Sumber Daya Air dan Konstruksi Ir. Herman Suroyo, MT
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jurnal Geologi dan Sumberdaya Mineral](https://github.com/technlg/images/blob/main/50.jpg)</a>
+## Jurnal Geologi dan Sumberdaya Mineral
+Pusat Survei Geologi, Geological Survey Institute of Indonesia, Badan Geologi, Geological Agency, Departemen ESDM, Departemen Energi dan Sumber Daya Mineral, Department of Energy and Mineral Resources of Republic of Indonesia
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MENTERl ENERGl DAN SUMBER DAYA MINERAL](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## MENTERl ENERGl DAN SUMBER DAYA MINERAL
+Kementerian Energi dan Sumber Daya Mineral (Lembaran Negara Republik Indonesia Tahun 2015 Nomor 132) sebagaimana telah diubah dengan Peraturan Presiden Nomor 105 Tahun 2016 tentang Perubahan atas Peraturan Presiden Nomor 68 Tahun 2015 4.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![MENTERl ENERGl DAN SUMBER DAYA MINERAL](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## MENTERl ENERGl DAN SUMBER DAYA MINERAL
+pelayanan di bidang sumber daya geologi, vulkanologi, dan mitigasi bencana geologi, air tanah, dan geologi lingkungan, serta survei geologi. 21. Kepala Badan Geologi adalah kepala badan yang mempunyai tugas menyelenggarakan penelitian, tanah, dan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Home | PT. Sumber Tiera Mineral](https://github.com/technlg/images/blob/main/11.jpg)</a>
+## Home | PT. Sumber Tiera Mineral
+PT. Sumber Tiera Mineral. Ubud Village Ruko Kuta A/11, Jl. Ciledug Raya, RT.001/RW.001, East Sudimara, Ciledug, Tangerang City, Banten 15151. +62 21 . admin@sumbertieramineral. Please note that PT Sumber Tiera Mineral will only send an email through "@sumbertieramineral".
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sumber Daya Minyak dan Gas Bumi - Pusat Survei Geologi](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Sumber Daya Minyak dan Gas Bumi - Pusat Survei Geologi
+Pusat Survei Geologi, Geological Survey Institute of Indonesia, Badan Geologi, Geological Agency, Departemen ESDM, Departemen Energi dan Sumber Daya Mineral, Department of Energy and Mineral Resources of Republic of Indonesia
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KEMENTERIAN ENERGI DAN SUMBER DAYA MINERAL BADAN GEOLOGI](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## KEMENTERIAN ENERGI DAN SUMBER DAYA MINERAL BADAN GEOLOGI
+KEMENTERIAN ENERGI DAN SUMBER DAYA MINERAL BADAN GEOLOGI Sample Location of 18O and 2HProduction Wells Rain gauge + Peta Lokasi Pengambilan contoh air hujan dan air tanah pada sumur bor untuk uji isotop stabil (2H dan 18O)N o. X Y Elv.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Badan Geologi - Kementerian Energi dan Sumber Daya .](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Badan Geologi - Kementerian Energi dan Sumber Daya .
+Sekretariat Badan Geologi Pusat Sumber Daya Mineral, Batubara, dan Panas Bumi Pusat Vulkanologi dan Mitigasi Bencana Geologi Pusat Air Tanah dan Geologi Tata Lingkungan Pusat Survei Geologi Balai Penyelidikan dan Pengembangan Teknologi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Badan Geologi bahasa Indonesia, .](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Badan Geologi bahasa Indonesia, .
+Badan Geologi adalah suatu badan yang memiliki tugas menyelenggarakan penelitian, penyelidikan, dan pelayanan di bidang sumber daya geologi, vulkanologi dan mitigasi bencana geologi, air tanah, dan geologi lingkungan, serta survei geologi. Badan ini dipimpin
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![UPTD Geologi dan Laboratorium – DESDM SUMSEL](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## UPTD Geologi dan Laboratorium – DESDM SUMSEL
+UPTD Geologi dan Laboratorium mempunyai tugas melaksanakan kegiatan teknis operasional dan kegiatan teknis penunjang yang bersifat pelaksanaan di bidang geologi dan laboratorium. Fungsi : pelaksanaan urusan tata usaha dan administrasi dan kepegawaian;
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Analisis Bibliometrik Jurnal Geologi dan Sumberdaya Mineral .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## Analisis Bibliometrik Jurnal Geologi dan Sumberdaya Mineral .
+Analisis Bibliometrik Jurnal Geologi dan Sumberdaya Mineral Tahun 2014 - 2018 Lentera Pustaka: Jurnal Kajian Ilmu Perpustakaan, Informasi dan Kearsipan, 5 (1): 49-64, 2019 51 rumah rusak ringan. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Modul 3 Geologi dan Hidrogeologi](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## Modul 3 Geologi dan Hidrogeologi
+Modul 3 Geologi dan Hidrogeologi Pusat Pendidikan dan Pelatihan Sumber Daya Air dan Konstruksi 3 D. Materi Pokok dan Sub Materi Pokok Dalam modul geologi dan hidrogeologi ini akan membahas materi: 1. Geologi umum a. Pengenalan jenis batuan,
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jurnal Geologi dan Sumberdaya Mineral Journal of Geology and Mineral .](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## Jurnal Geologi dan Sumberdaya Mineral Journal of Geology and Mineral .
+Geologi, Kementerian Energi dan Sumber Daya Mineral / Published periodically four times annually every February, May, August, and November, by Centre for Geological Survey, Geological Agency, Ministry of Energy and Mineral Resources.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Badan Geologi - Kementerian Energi dan Sumber Daya .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Badan Geologi - Kementerian Energi dan Sumber Daya .
+Lokasi & Kontak. BADAN GEOLOGI. Alamat. Jl.Diponegoro No.57. Bandung. Jawa Barat.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Masuk | Sistem Informasi Absensi Non PNS Badan Geologi](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## Masuk | Sistem Informasi Absensi Non PNS Badan Geologi
+Sistem Informasi Absensi Non PNS Badan Geologi Mohon isi nomor pegawai dan kata sandi untuk masuk ke aplikasi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Struktur Geologi Bawah Permukaan Pegunungan Selatan .](https://github.com/technlg/images/blob/main/6.jpg)</a>
+## Struktur Geologi Bawah Permukaan Pegunungan Selatan .
+High anomaly around Ciletuh, Sukabumi shows 240 mGals, while in the northern area is 10 mGals. The high anomaly is interpreted ultramafic outcrop at Ciletuh and the Moho level is at about 13 kms under sea level, while low anomaly in northern indicates sedimentary basin, which is .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kementerian ESDM RI - Profil - Tugas & Fungsi](https://github.com/technlg/images/blob/main/52.jpg)</a>
+## Kementerian ESDM RI - Profil - Tugas & Fungsi
+Badan Geologi berada di bawah dan bertanggung jawab kepada Menteri. Badan Geologi dipimpin oleh Kepala Badan. Tugas dan Fungsi Badan Geologi mempunyai tugas menyelenggarakan penelitian, penyelidikan, dan pelayanan di bidang sumber daya geologi, vulkanologi dan mitigasi bencana geologi, air tanah, dan geologi lingkungan, serta survei geologi.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Archives | Buletin Sumber Daya Geologi](https://github.com/technlg/images/blob/main/4.jpg)</a>
+## Archives | Buletin Sumber Daya Geologi
+Pusat Sumber Daya Mineral Batubara dan Panas Bumi (PSDMBP) pada akhir Agustus 2020 kembali menerbitkan Buletin Sumber Daya Geologi, volume -15 nomor 2 tahun 2020. Pada setiap penerbitannya, dihadirkan lima makalah yang membahas tentang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Informasi Hukum ESDM](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## Informasi Hukum ESDM
+A : Judul Peta, B : Skala dan Simbol Orientasi Peta, C : Keterangan Peta, D : Sumber dan Penyusun Peta, E : Indeks Peta, F : Peta Sebaran Keragaman Geologi, G : Tabel Lokasi Keragaman Geologi. MENTERI ENERGI DAN SUMBER DAYA MINERAL ttd.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Jurnal Geologi dan Sumberdaya Mineral](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Jurnal Geologi dan Sumberdaya Mineral
+Jurnal Geologi dan Sumberdaya Mineral. Jurnal Geologi dan Sumberdaya Mineral (Journal of Geology and Mineral Resources) is an Indonesian scientific journal published by the Center for Geological Survey, Geological Agency, Ministry of Energy and Mineral Resources. The journal receives Indonesian or .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![lnventori sumber warisan geologi dan landskap Negeri Kelantan](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## lnventori sumber warisan geologi dan landskap Negeri Kelantan
+kehadiran fosil atau mineral khas, dan proses pembentukan sesuatu fitur atau rupabumi. Bagi kajian ini sumber geologi merupakan gabungan kedua aspek geologi sekitaran da geologi pemuliharaan yang terdiri daripada kepelbagaia batuan, bahan binaan dan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pusat Sumber Daya Mineral Batubara dan Panas Bumi - BAB 2 LINGKUP PEKERJAAN](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Pusat Sumber Daya Mineral Batubara dan Panas Bumi - BAB 2 LINGKUP PEKERJAAN
+Laporan Pemuktahiran Data dan Neraca Sumber Daya Mineral, T.A 2013 10 pemerintah, instansi, perusahaan swasta, maupun dengan orang asing. Data ini diperlukan sebagai kerangka acuan penyelidikan. G. Informasi Geologi dan Mineralisasi Regional : Berisi
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [loji pemisahan magnet kering bijih besi berkapasiti tinggi](loji%20pemisahan%20magnet%20kering%20bijih%20besi%20berkapasiti%20tinggi.md)
+* [pengisaran pada kilang bridgeport](pengisaran%20pada%20kilang%20bridgeport.md)
+* [ukuran batu hancur di arab saudi](ukuran%20batu%20hancur%20di%20arab%20saudi.md)
+* [pengiraan hammer crusher excel spreadsheet](pengiraan%20hammer%20crusher%20excel%20spreadsheet.md)
+* [mesin penghancur rahang di saudi](mesin%20penghancur%20rahang%20di%20saudi.md)
+* [berapa banyak deos yang menghancurkan kos mesin](berapa%20banyak%20deos%20yang%20menghancurkan%20kos%20mesin.md)
+* [100 pembiayaan antarabangsa untuk perlombongan emas](100%20pembiayaan%20antarabangsa%20untuk%20perlombongan%20emas.md)
+* [penyewaan dan penyaringan witbank](penyewaan%20dan%20penyaringan%20witbank.md)
+* [pek kuasa hidraulik di spring cone crusher](pek%20kuasa%20hidraulik%20di%20spring%20cone%20crusher.md)
+* [jentera chancadora sbm shibang](jentera%20chancadora%20sbm%20shibang.md)

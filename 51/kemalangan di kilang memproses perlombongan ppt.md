@@ -1,0 +1,160 @@
+# kemalangan di kilang memproses perlombongan ppt
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![3.1.4 Sektor perlombongan.pptx.pptx - 3.1 Sektor-sektor .](https://github.com/technlg/images/blob/main/61.jpg)</a>
+## 3.1.4 Sektor perlombongan.pptx.pptx - 3.1 Sektor-sektor .
+Faktor-faktor yang mempengaruhi aktiviti perlombongan di Malaysia Faktor Huraian 1.stok/simpanan sumber mineral yang ada-masih mempunyai simpanan sumber mineral-cth:petroleum boleh menampung untuk 20 tahun lagi-kehabisan stok juga menyebabkan operasi perlombongan ditutup-cth : hanya sedikit aktiviti bijih timah dan bijih besi 2.faktor fizikal-kedudukan Malaysia di atas pentas sunda yang cetek 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGKELASAN SEKTOR EKONOMI - SlideShare](https://github.com/technlg/images/blob/main/8.jpg)</a>
+## PENGKELASAN SEKTOR EKONOMI - SlideShare
+3/3/2017· Tujuannya untuk menjimatkan kos pengangkutan sumber bahan mentah ke kilang memproses. Misalnya kilang memproses kelapa sawit dilokasikan di dalam ladang kelapa sawit. Kedua untuk mengurangkan risiko pencemaran alam sekitar dan impak negatif 10.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Arahan mkn 20 - SlideShare](https://github.com/technlg/images/blob/main/57.jpg)</a>
+## Arahan mkn 20 - SlideShare
+21/11/2016· Bencana industri termasuklah kejadian letupan, kebakaran, pencemaran dan kebocoran bahan-bahan berbahaya (hazardous materials) di kilang, loji dan depot yang memproses, mengeluar dan menyimpan bahan-bahan berkenaan c. Kemalangan melibatkan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Skema Modul Geografi Tingkatan 5 by Buku Geografi - .](https://github.com/technlg/images/blob/main/13.jpg)</a>
+## Skema Modul Geografi Tingkatan 5 by Buku Geografi - .
+Latihan Lokasi Peta 1.2 Senarai Bandar Di Dunia Yang Melebihi 10 Juta Orang: Peta (a): Taburan Dan Kepadatan Penduduk Dunia 1. Tokyo-Yokohama 2. Osaka-Kobe-Kyoto 9 .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sejarah Tingkatan 3 Bab 6 - BANKSOALAN](https://github.com/technlg/images/blob/main/16.jpg)</a>
+## Sejarah Tingkatan 3 Bab 6 - BANKSOALAN
+– kilang memproses getah di Sabah pada tahun 1918 Buruh i) PerlombonganNegeri Melayu – pembangunan dan kepesatan ekonomi menyebabkan British menggalakkan kemasukan buruh asing untuk mengisi kekosongan pekerjaan di kawasan perlombongan bijih
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Mkl Crimedesk Kebakaran Kilang Kimia](https://github.com/technlg/images/blob/main/53.jpg)</a>
+## Mkl Crimedesk Kebakaran Kilang Kimia
+12 September 2015 Klang Selangor Pekerja kilang kimia melecur dan seorang pengurus gudang dikhuatiri mati manakala 3 pekerja melecur dalam kebakaran membabitkan gudang kilang kimia di Kota Kemuning Seksyen 31 semalam Kejadian jam 5 petang t
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perindutrian Di Malaysia - OoCities](https://github.com/technlg/images/blob/main/39.jpg)</a>
+## Perindutrian Di Malaysia - OoCities
+Kilang-kilang di kawasan ini diberikan beberapa keistimewaan seperti insentif cukai, kemudahan kredit serta pengecualian cukai eksport dan import. SIRIM ditubuhkan dengan tujuan menjamin mutu keluaran hasil pengeluaran kilang dan jalankan penyelidikan untuk tingkatkan mutu barangan.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taklimat Keselamatan untuk Pekerja / Pelawat / Pelajar Pasport .](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## Taklimat Keselamatan untuk Pekerja / Pelawat / Pelajar Pasport .
+Perundangan Berkaitan KKP di Malaysia 1. Akta Keselamatan dan Kesihatan Pekerjaan 1994 (AKKP / OSHA 1994) 2. Akta Kilang & Jentera 1967 (AKJ / FMA 1967) 3. Akta Bekalan Elektrik 1990 (ABE / ESA 1990) 4. Akta Bekalan Gas 1993 (ABG / GSA 1993)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1 Bab 8 : Penjanaan Elektrik (Generation of Electricity)](https://github.com/technlg/images/blob/main/63.jpg)</a>
+## 1 Bab 8 : Penjanaan Elektrik (Generation of Electricity)
+pengguna yang berlainan. Contohnya kilang memproses makanan memerlukan 415V manakala rumah kediaman memerlukan 240V. 8.4 Pembekalan Elektrik Dan Sistem Pendawaian Di Rumah 1. Di Malaysia, bekalan elekrtik ke rumah kediaman ialah jenis
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PPT) bab 1 osha | Asmat Salsabila](https://github.com/technlg/images/blob/main/33.jpg)</a>
+## (PPT) bab 1 osha | Asmat Salsabila
+BAHAGIAN I: PERMULAAN (PRELIMINARY) [Seksyen 1(2)&(3)] Tajuk Ringkas & Pemakaian • Orang Bekerja -Di semua sektor ekonomi dalam Jadual Pertama termasuk perkhidmatan awam dan pihak berkuasa; -Kecuali di atas kapal atau angkatan tentera.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![teganuku: Perlombongan, Kilang Besi Bawa Kesan .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## teganuku: Perlombongan, Kilang Besi Bawa Kesan .
+Perlombongan, Kilang Besi Bawa Kesan Besar Pembangunan, Pekerjaan Selain menyediakan 3,000 pekerjaan, Perwaja turut meneroka teknolog i dan idea baru bagi membaiki pengeluaran dan menurunkan kos ope 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Masyarakat industri di_england_dan_jerman](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Masyarakat industri di_england_dan_jerman
+Melakukan kerja sehingga 12 jam sehari Upah sekadar cukup makan Wanita dieksploitasi untuk bekerja di kilang besi, kilang kulit, kawasan perlombongan dan pembinaan Pertengahan abad ke-19, 1.3 juta dan 40% adalah wanita Kanak-kanak
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sejarah Tingkatan 3 Pages 151 - 200 - Text Version | AnyFlip](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Sejarah Tingkatan 3 Pages 151 - 200 - Text Version | AnyFlip
+Kilang memproses lada hitam di Betong, Kilang memproses getah di Sabah pada tahun 1918. Sarawak yang masih mengekalkan pertanian tradisional. Pemandangan di sebuah kilang memproses sagu Pekerja sedang mengasingkan daun tembakau di Mukah
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![akta KKP Ringkasan - Scribd](https://github.com/technlg/images/blob/main/24.jpg)</a>
+## akta KKP Ringkasan - Scribd
+Pengilangan • Perlombongan dan penguarian • Pembinaan • Pertanian, perhutanan dan perikanan • Kemudahan: Elektrik, Gas,  Menjalankan dan membantu dalam apa-apa siasatan berkaitan dengan kemalangan yang terjadi di tempat kerja. 4. Mengiringi 5. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![RAG 121 SAINS PERSEKITARAN 1](https://github.com/technlg/images/blob/main/15.jpg)</a>
+## RAG 121 SAINS PERSEKITARAN 1
+Title RAG 121 SAINS PERSEKITARAN 1 Author Abd Majid Ismail Last modified by user Created Date 4/26/2000 3:17:37 AM Document presentation format On-screen Show Company USM Other titles Arial Arial Black Wingdings Times New Roman Berlin Sans FB 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Keselamatan dan Kesihatan Pekerjaan - .](https://github.com/technlg/images/blob/main/51.jpg)</a>
+## (PDF) Keselamatan dan Kesihatan Pekerjaan - .
+kemalangan di tempat kerja menunjukkan penurunan. Mengikut rekod Pertubuhan Kebajikan Sosial (PERKESO), bil an  kilang memproses kayu balak. Oleh kerana kelalaian organisasi mementingkan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Slide 1](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## Slide 1
+perkilangan yang dibina di Tanah Melayu sebelum abad ke-20 Kilangan barangan berasaskan getah Kilang berasaskan perlombongan Kilang membina kapal korek,kapal kecil dan mesin memproses getah Perusaha mengetin nenas Senaraikan kilang 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PPT – Akta Keselamatan PowerPoint presentation | free to .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## PPT – Akta Keselamatan PowerPoint presentation | free to .
+Akta Keselamatan & Kesihatan Pekerjaan 1994 - Akta 514 - (OSHA 1994) SKOP KANDUNGAN CERAMAH : Konsep OSHA 1994 Peruntukan-peruntukan Utama Akta STRUKTUR  – A free PowerPoint PPT presentation (displayed as a Flash slide
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Perkhidmatan Lombong dan Kuari - Minerals and .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## Perkhidmatan Lombong dan Kuari - Minerals and .
+Aspek keselamatan operasi perlombongan adalah tertakluk di bawah Akta Pembangunan Mineral 1994 dan bagi operasi pengkuarian pula adalah tertakluk di bawah Peraturan Kuari negeri. Isu pencemaran alam sekitar yang sering dikaitkan dengan aktiviti perlombongan dan pengkuarian adalah melibatkan pencemaran air dan udara serta gegaran bumi, habuk, dan ledakan udara (bunyi) yang diakibatkan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ARAHAN No. 20](https://github.com/technlg/images/blob/main/59.jpg)</a>
+## ARAHAN No. 20
+dan kebocoran bahan-bahan berbahaya (hazardous materials) di kilang, loji dan depot yang memproses, mengeluar dan menyimpan bahan-bahan berkenaan; (c) Kemalangan melibatkan pengangkutan, penyaluran dan pemindahan bahan-bahan berbahaya;
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1 Pen Gen Alan Safety - Scribd](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## 1 Pen Gen Alan Safety - Scribd
+1 Pen Gen Alan Safety - Free download as Powerpoint Presentation (.ppt), PDF File (.pdf), Text File (.txt) or view presentation slides online. O Scribd é o maior site social de leitura e publicação do mundo.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Laporan Kilang Kayu [nl2pmx48j708]](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## Laporan Kilang Kayu [nl2pmx48j708]
+Kajianyang sarna juga telah dibuat di kilang-kilang rnemproses papan, kilang-kilangelektronik, kilang-kilang memproses getah dan sektor-sektor perlombongan.Lantaran itu, pihak majikan dan pekerja haruslah bersama-sama mengenalpasti punca-punca yang
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Tahap Pengetahuan Tentang Keselamatan dan .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## (PDF) Tahap Pengetahuan Tentang Keselamatan dan .
+Kajian ini dijalankan secara deskriptif yang menjelaskan tahap pengetahuan tentang keselamatan dan kesihatan pekerjaan. Kajian ini dilakukan di sebuah kilang elektronik yang terletak di Shah Alam. Sebanyak 152 set borang soal selidik telah diedar untuk 250 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PowerPoint Presentation - DOSH](https://github.com/technlg/images/blob/main/29.jpg)</a>
+## PowerPoint Presentation - DOSH
+3. Mengurang / menghapuskan kemalangan di tempat kerja 1. Khidmat Nasihat (PERCUMA) - Perlaksanaan KKP di tempat kerja 2. Tidak diambil tindakan undang-undang – Komitmen terhadap KKP 4. Meningkatkan Produktiviti 5. Memberi Imej yang baik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pagar Museh: KULIAH 6 - SEKTOR PERINDUSTRIAN](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## Pagar Museh: KULIAH 6 - SEKTOR PERINDUSTRIAN
+PENDIDIKAN DI AFGHANISTAN KULIAH 5 - PERLOMBONGAN KULIAH 6 - SEKTOR PERINDUSTRIAN KULIAH 7 - KAITAN SISTEM ATMOSFERA DENGAN MANUSIA KULIAH 7 - SEKTOR PERKHIDMATAN SKESTA AND SONGS IN ENGLISH. KULIAH 8
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGENALAN JPAM PERANAN DALAM PENGURUSAN BENCANA .](https://github.com/technlg/images/blob/main/49.jpg)</a>
+## PENGENALAN JPAM PERANAN DALAM PENGURUSAN BENCANA .
+materials) di kilang, loji dan depot yang memproses, mengeluar dan menyimpan bahan-bahan berkenaan; 3. Kemalangan melibatkan pengangkutan, penyaluran dan pemindahan bahan-bahan berbahaya; 4. Keruntuhan bangunan dan struktur khas;
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![1 - SAFETY AWARENESS.ppt - Scribd](https://github.com/technlg/images/blob/main/35.jpg)</a>
+## 1 - SAFETY AWARENESS.ppt - Scribd
+KEMUNCULAN KEMALANGAN DI INDUSTRI Kemalangan-kemalangan industri wujud semasa sistem kilang ketika revolusi industri pada abad ke-18 (1700 an). Wanita-wanita dan kanak-kanak telah bekerja dalam keadaan tidak selamat dan tidak sihat di
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Taklimat Keselamatan untuk Pekerja / Pelawat / Pelajar .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Taklimat Keselamatan untuk Pekerja / Pelawat / Pelajar .
+Perundangan Berkaitan KKP di Malaysia 1. Akta Keselamatan dan Kesihatan Pekerjaan 1994 (AKKP / OSHA 1994) 2. Akta Kilang & Jentera 1967 (AKJ / FMA 1967) 3. Akta Bekalan Elektrik 1990 (ABE / ESA 1990) 4. Akta Bekalan Gas 1993 (ABG / GSA 1993)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PPT – UNDANG-UNDANG PowerPoint presentation | .](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## PPT – UNDANG-UNDANG PowerPoint presentation | .
+UNDANG-UNDANG KESELAMATAN & KESIHATAN PEKERJAAN Dr Rozanah Ab Rahman Sekolah Pengajian Siswazah Pengurusan Universiti Putra Malaysia PENGUATKUASAAN DAN SIASATAN Ketua  – A free PowerPoint PPT presentation
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Keselamatan & Kesihatan Perkerja: KESELAMATAN DAN .](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## Keselamatan & Kesihatan Perkerja: KESELAMATAN DAN .
+Perundangan ini diperbuat kerana memandangkan Akta Kilang dan Jentera 1967 hanya meliputi keselamatan dan kesihatan pekerjaan sektor perkilangan, perlombongan dan pengkuarian dan pembinaan yang mana keselamatan dan kesihatan pekerja di sektor
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![teh o limau suam](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## teh o limau suam
+Kenapa Malaysia Memerlukan Kilang Memproses Nadir Bumi Lynas @NajibRazak ? Kecoh tentang pembukaan kilang memproses nadir bumi di Gebeng, Pahang oleh syarikat Lynas Malaysia Sdn. Bhd. Aku tergerak untuk membuat sedikit kajian tentang isu ini selepas menonton video yang dirakam dalam bahasa Malaysia oleh seorang warganegara Australia sendiri berkaitan isu ini.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KESAN PENTADBIRAN BARAT TERHADAP EKONOMI .](https://github.com/technlg/images/blob/main/56.jpg)</a>
+## KESAN PENTADBIRAN BARAT TERHADAP EKONOMI .
+Tahun (1849 - 1911) - Perlombongan arang batu berada di Terowong Tanjung Kubong + Labuan Negeri-Negeri Melayu  Mukah - Kilang memproses sagu. Sabah Tahun 1918 - Kilang proses getah. Awal adad ke 20 - Pengasingan daun tembakau mengikut Modal 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Lubuk emas makan diri | Harian Metro](https://github.com/technlg/images/blob/main/58.jpg)</a>
+## Lubuk emas makan diri | Harian Metro
+Lantaran tiada sebarang kemalangan dalam tempoh hampir 12 tahun, ia mungkin menjadi antara faktor aktiviti mencari emas itu masih berterusan sehingga ke hari ini. MUHAMAD menunjukkan jentera berat yang tersadai selepas aktiviti perlombongan emas di
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Penduduk tagih janji projek kilang silika](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## Penduduk tagih janji projek kilang silika
+KUALA TERENGGANU: Ketika projek perlombongan silika dilulus kerajaan negeri empat tahun lalu, penduduk dijanjikan dibina sebuah kilang kaca. Bekas Ketua Kampung Bari Besar Setiu, Hasan Basri berkata, pegawai kerajaan dan pemaju ketika itu bertemu pemduduk kampung berkaitan cadangan membina kilang di Kampung Saujana atau Bari Besar. Bagaimanapun katanya, terdapat dakwaan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![JABATAN KESELAMATAN & KESIHATAN PEKERJAAN WILAYAH .](https://github.com/technlg/images/blob/main/48.jpg)</a>
+## JABATAN KESELAMATAN & KESIHATAN PEKERJAAN WILAYAH .
+Memproses permohonan pendaftaran kilang dan jentera baru serta menjalankan pemeriksaan yang berkaitan. Menjalankan pemeriksaan ulangan ke atas kilang dan jentera setiap 15 bulan. Memproses permohonan kelulusan tapak bina serta kesihatan yang2 1 3
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Nota Ringkas -Jabatan Keselamatan dan Kesihatan .](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Nota Ringkas -Jabatan Keselamatan dan Kesihatan .
+dengan kemalangan yang terjadi di tempat kerja. 4. Mengiringi semasa audit dan pemeriksaan berkaitan dengan KKP 5. Menyediakan laporan pada setiap bulan dan laporkan kepada majikan pada 10 hb setiap bulan dan mendapatkan pengesahan dari
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Osha - Scribd](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## Osha - Scribd
+909 1,046 1,307 1,0205 952 Jumlah maut 92,074 85,338 86,289 107,635 114,134 Kemalangan yang dilapor 1999 1998 1997 1996 1995 12678 739 37261 3573 979 12986 4050 700 7078 5294 12753 756 40730 592 4747 14685 4462 627 6735 5987 0 34
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [kesan pasir hitam di mexico](kesan%20pasir%20hitam%20di%20mexico.md)
+* [berapakah kandungan pasir kaolin](berapakah%20kandungan%20pasir%20kaolin.md)
+* [peralatan pengisar bijan kecil untuk pes bijan](peralatan%20pengisar%20bijan%20kecil%20untuk%20pes%20bijan.md)
+* [peralatan menghancurkan tembaga sekerap di india](peralatan%20menghancurkan%20tembaga%20sekerap%20di%20india.md)
+* [sifat magnet bijih besi dan pemisah magnetik](sifat%20magnet%20bijih%20besi%20dan%20pemisah%20magnetik.md)
+* [jumlah kos kilang penghancur batu di rajasthan](jumlah%20kos%20kilang%20penghancur%20batu%20di%20rajasthan.md)
+* [proses pemanfaatan bijih krom](proses%20pemanfaatan%20bijih%20krom.md)
+* [pembekal loji penghancur slag di india](pembekal%20loji%20penghancur%20slag%20di%20india.md)
+* [kesan fosfat di afrika selatan](kesan%20fosfat%20di%20afrika%20selatan.md)
+* [mesin basuh pasir 0 mm hingga 5mm](mesin%20basuh%20pasir%200%20mm%20hingga%205mm.md)

@@ -1,0 +1,164 @@
+# prinsip kerja jadual penyusun penghantar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![KATA PENGANTAR](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## KATA PENGANTAR
+Penyusun 1 PENDAHULUAN Kompetensi Inti 1. Menghayati dan mengamalkan ajaran agama yang dianutnya  12. menjelaskan prinsip kerja pada voltmeter 13. menyelidiki hubungan hambatan kawat penghantar dengan panjang kawat, luas 14. menyelidiki 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Makalah teknik tenaga listrik part 1 - SlideShare](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Makalah teknik tenaga listrik part 1 - SlideShare
+16/3/2015· Prinsip kerja dalam sistem tenaga listrik dimulai dari bagian pembangkitan kemudian disalurkan melalui sistem jaringan transmisi kepada gardu induk dan dari gardu induk ini disalurkan serta dibagi-bagi kepada pelanggan melalui saluran distribusi. 10.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PWR UP TG 3 RBT-Flip eBook Pages 1 - 42| AnyFlip | AnyFlip](https://github.com/technlg/images/blob/main/36.jpg)</a>
+## PWR UP TG 3 RBT-Flip eBook Pages 1 - 42| AnyFlip | AnyFlip
+TP3 Mengaplikasikan jadual kerja untuk pembangunan produk. 2 PEMBANGUNAN Menganalisis lakaran produk dari aspek elemen dan prinsip reka bentuk. PRODUK TP4 TP5 Menjustifikasi penambahbaikan produk 23, 24 berdasarkan analisis lakaran. 25 iiiiii
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Kondensator bahasa Indonesia, ensiklopedia .](https://github.com/technlg/images/blob/main/28.jpg)</a>
+## Kondensator bahasa Indonesia, ensiklopedia .
+Bahan penyusun kapasitor yaitu dua keping atau dua lembaran penghantar listrik yang dipisahkan menggunakan isolator listrik berupa bahan dielektrik. Masing-masing keping atau lembaran penghantar listrik diberi muatan listrik dalam jumlah yang sama tetapi berlainan jenis, yaitu muatan positif dan .
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB 2 TINJAUAN PUSTAKA 2.1 Baterai Ion Lithium](https://github.com/technlg/images/blob/main/10.jpg)</a>
+## BAB 2 TINJAUAN PUSTAKA 2.1 Baterai Ion Lithium
+3. Penghantar ion/ elektrolit, yaitu media transfer ion yang bergerak dari anoda ke katoda dalam sel baterai saat penggunaan. Fisik elektrolit umumnya berupa cairan/ larutan dimana molekul garam larut didalamnya. (Linden, 2002) Baterai terdiri atas dua
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pendugaan Sebaran Air Tanah Menggunakan Metode Geolistrik .](https://github.com/technlg/images/blob/main/37.jpg)</a>
+## Pendugaan Sebaran Air Tanah Menggunakan Metode Geolistrik .
+antara ujung-ujung penghantar adalah sama dengan hasil kali resistansi dan kuat arus. Hal ini diasumsikan bahwa R tidak tergantung I, bahwa R adalah konstan (tetap). Rangkaian resistansi, kuat arus, dan tegangan ditunjukkan oleh Gambar 1 (Muallifah
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sistem pengeluaran dan pengeluaran: konsep, corak .](https://github.com/technlg/images/blob/main/32.jpg)</a>
+## Sistem pengeluaran dan pengeluaran: konsep, corak .
+Prinsip Sistem pengeluaran utama di dunia moden adalah berdasarkan: Perancangan Sumber. Selaras dengan projek kerja am, ramalan konjunktur, penunjuk kewangan, kejuruteraan dan reka bentuk pembangunan, pekerjaan, dan jadual dibentuk.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Thermocouple – bagiInfo](https://github.com/technlg/images/blob/main/30.jpg)</a>
+## Thermocouple – bagiInfo
+Cara kerja thermocouple rupanya cukup mudah dan sederhana. Anda bisa melihat gambar di atas yang terdapat metal 1 dan metal 2. Thermocouple terdiri dari dua buat kawat logam penghantar (konduktor) yang memiliki jenis yang berbeda. Kedua ujung kawat
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Sri Waluyanti, dkk.](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## Sri Waluyanti, dkk.
+4.10.1. Kawat Penghantar Tiga Fasa 200 4.10.2. Prinsip Dasar Alat Indikator Urutan Fasa 203 4.10.3. Cara Kerja Alat 203 4.10.4. Prosedur Pengoperasian Alat 206 5. PENGUJI TAHANAN ISOLASI DAN KUAT MEDAN 5.1.1. Pengujian Tahanan Isolasi 210 5.1
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![ALAT UKUR DAN TEKNIK - Universitas Padjadjaran](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## ALAT UKUR DAN TEKNIK - Universitas Padjadjaran
+4.10.1. Kawat Penghantar Tiga Fasa 200 4.10.2. Prinsip Dasar Alat Indikator Urutan Fasa 203 4.10.3. Cara Kerja Alat 203 4.10.4. Prosedur Pengoperasian Alat 206 5. PENGUJI TAHANAN ISOLASI DAN KUAT MEDAN 5.1.1. Pengujian Tahanan Isolasi 210 5.1
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Induksi Elektrostatik | INFO-ELEKTRO](https://github.com/technlg/images/blob/main/34.jpg)</a>
+## Induksi Elektrostatik | INFO-ELEKTRO
+Berbagi Ilmu dan Belajar Bersama Elektro Kendali, Tenaga Listrik, Informatika, Teknologi Dengan Induksi elektrostatik, proses pelistrikan dapat terjadi tanpa kontak ataupun gosokan. Dalam bentuk paling sederhana prinsip tersebut dapat diperlihatkan melalui 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## BAB II TINJAUAN PUSTAKA
+Prinsip kerja sistem rem berawal dari gaya yang diberikan pada pedal rem kemudian gaya diteruskan melalui media penghantar menurut jenis sistem rem itu sendiri, pada mekanik maka digunakan batang penghantar gaya pada hidrolik digunakan fluida cair, dan 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II DASAR TEORI 2.1. Pengertrian Sistem Hidraulic](https://github.com/technlg/images/blob/main/55.jpg)</a>
+## BAB II DASAR TEORI 2.1. Pengertrian Sistem Hidraulic
+lengkung skala penunjuk (7). Jadi, prinsip pembacaan pengukuran tekanan manometer ini adalah bekerja berdasarkan atas dasar prinsip analog. Gambar 2.12 Pengukur tekanan (manometer) dengan prinsip kerja Bourdon d. Fluida Hidrolik Fluida hidrolik
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dasar Elektronika Analog dan Digital](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Dasar Elektronika Analog dan Digital
+1) Pakaian kerja (wearpack) 2) Penghantar, isolator dan bahan semikonduktor 3) or Komponen st dioda, seperti ka, transi elektroni 4) IC TTL c. ihan Pelat Hasil Peserta diklat mampu menguasai dasar elektronika analog dan digital. 2. Peran Guru
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) Tips dan Trik Menyusun Jadwal Pelajaran | .](https://github.com/technlg/images/blob/main/60.jpg)</a>
+## (PDF) Tips dan Trik Menyusun Jadwal Pelajaran | .
+Tips dan Trik Menyusun Jadwal Pelajaran. H. Martodiharjo Full. Ahmadi (1978:73-74) penyusunan jadual pelajaran harus memperhatikan enam hal, yaitu:1. adanya selingan antara mata pelajaran satu dengan lainnya agar tidak menjemukan (untuk memenuhi persyaratan ini dapat dilakukan dengan 2 cara yaitu pemberian jeda waktu tiap ganti pelajaran atau 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Konsep Gaya Magnet - POJOK IPA](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Konsep Gaya Magnet - POJOK IPA
+Konsep Gaya Magnet Rangkuman materi IPA Kelas 9 Semester 2 Kata magnet berasal dari bahasa Yunani magnítis líthos yang berarti batu Magnesian. Magnesia adalah nama sebuah wilayah di Yunani pada masa lalu yang kini bernama Manisa (sekarang berada di 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PENGANTAR BLUD - DJPK Kemenkeu](https://github.com/technlg/images/blob/main/9.jpg)</a>
+## PENGANTAR BLUD - DJPK Kemenkeu
+Bab 4 memuat tata kelola, prinsip tata kelola, organisasi, pejabat pengelola, pemimpin, pejabat keuangan, pejabat teknis, dewan pengawas kepegawaian, satuan pemeriksaan internal, mekanisme kerja. Pada bab 5, modul ini menjelaskan tentang dewan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![LISTRIK DAN ELEKTRONIKA DASAR](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## LISTRIK DAN ELEKTRONIKA DASAR
+KODE MODUL LED OTO 311-01 Fakultas Teknik UNY Jurusan Pendidikan Teknik Otomotif Dasar Listrik Penyusun Sutiman, S.Pd Sistem Perencanaan Penyusunan Program dan Penganggaran (SP 4)KATA PENGANTAR Modul DASAR LISTRIK ini digunakan
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknik Dasar Rectifier dan Inverter](https://github.com/technlg/images/blob/main/22.jpg)</a>
+## Teknik Dasar Rectifier dan Inverter
+Modul ini memberikan latihan untuk mempelajari prinsip kerja dari penyearah (rectifier) dan inverter berdasarkan pada standar yang berlaku. Yogyakarta, Desember 2003 Penyusun, Tim Fakultas Teknik Universitas Negeri Yogyakarta
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![praktik. - Universitas Negeri Yogyakarta](https://github.com/technlg/images/blob/main/5.jpg)</a>
+## praktik. - Universitas Negeri Yogyakarta
+Mengetahui prinsip dan cara kerja dari masing-masing equipment instalasi listrik D. Petunjuk Praktek 1.  Penghantar listrik (j enis dan macam-macamnya) Fitting lampu Pengaman listrik 1 phase Saklar (j enis dan macam-macamnya) Stop kontak type) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB I PENDAHULUAN 1.1 Latar Belakang](https://github.com/technlg/images/blob/main/2.jpg)</a>
+## BAB I PENDAHULUAN 1.1 Latar Belakang
+merupakan kordinasi dari kerja peralatan switching berupa Pemisah (PMS) dan Pemutus Tenaga (PMT). Namun khususnya pada manuver bay penghantar sendiri terdapat relai synchrochek yang bekerja dengan membandingkan tegangan padaclose.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rangkaian Inverter: Pengertian, Fungsi, Jenis, Skema, Cara .](https://github.com/technlg/images/blob/main/19.jpg)</a>
+## Rangkaian Inverter: Pengertian, Fungsi, Jenis, Skema, Cara .
+Rangkaian Inverter: Pengertian, Fungsi, Jenis, Skema dan Cara Kerja - Inverter adalah suatu rangkaian elektronika daya yang digunakan untuk mengkonversi atau Bilamana di dalam mobil, kita ingin menggunakan tegangan AC untuk keperluan seperti charge HP 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Rencana Kerja Tahunan TPQ](https://github.com/technlg/images/blob/main/12.jpg)</a>
+## Rencana Kerja Tahunan TPQ
+Sesuai dengan SK Dirjen Pendis no 91 tahun 2020, Rencana Kerja Tahunan Taman Pendidikan al-Qur'an ini memuat 2 (dua) komponen atau kategori, yaitu, (1) standar Kompetensi Lulusan dan, (2) Kalender pendidikan yang meliputi jadual pembelajaran
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pengeluaran dalam talian adalah  Konsep, definisi, .](https://github.com/technlg/images/blob/main/18.jpg)</a>
+## Pengeluaran dalam talian adalah  Konsep, definisi, .
+Kerja-kerja perusahaan dari segi pengeluaran semasa hari ini dianggap paling berkesan, tetapi pada masa yang sama dan menuntut dari segi tenaga kerja, kos organisasi dan bahan. Secara umum, pengeluaran dalam talian adalah format aktiviti pengeluaran di mana prinsip-prinsip irama dan kebolehulangan teknologi operasi yang dipersetujui datang.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB 2 TINJAUAN PUSTAKA 2.1. Baterai Lithium](https://github.com/technlg/images/blob/main/17.jpg)</a>
+## BAB 2 TINJAUAN PUSTAKA 2.1. Baterai Lithium
+Standart potensial pada Alumunium foil pada suhu 25 0 C yaitu –1,66 V sedangkan pada Cupper foil sebesar sebesar 0,52 V(Linden,2002) 2.2. Prinsip Kerja Baterai Lithium Ion. Dalam kondisi charge dan discharge baterai ion lithium bekerja menurut
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II LANDASAN TEORI 2.1 Tinjauan Pustaka](https://github.com/technlg/images/blob/main/3.jpg)</a>
+## BAB II LANDASAN TEORI 2.1 Tinjauan Pustaka
+9 BAB II LANDASAN TEORI 2.1 Tinjauan Pustaka Gagasan dan ide penyusun tentang Tugas Akhir ini atas dasar observasi yang penyusun lakukan saat melaksanakan Kerja Praktik di PT PLN (Persero) TJBT APP Salatiga Basecamp Surakarta. Penyusun
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pembelajaran Berbasis Aktivitas](https://github.com/technlg/images/blob/main/43.jpg)</a>
+## Pembelajaran Berbasis Aktivitas
+menerapkan konsep kemagnetan dan jelaskan prinsip kerja salah satu alat tersebut dengan cara menggali informasi kajian pustaka atau melalui interne! Pembelajaran Berbasis Aktivitas 6 7. 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II TINJAUAN PUSTAKA](https://github.com/technlg/images/blob/main/66.jpg)</a>
+## BAB II TINJAUAN PUSTAKA
+Prinsip kerja sistem rem berawal dari gaya yang diberikan pada pedal rem kemudian gaya diteruskan melalui media penghantar menurut jenis sistem rem itu sendiri, pada mekanik maka digunakan batang penghantar gaya pada
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![7. Jaringan Tegangan Menegah [143g0qj8gjnj]](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## 7. Jaringan Tegangan Menegah [143g0qj8gjnj]
+Isolasi penghantar tiap Fase tidak perlu di lindungi dengan pelindung mekanis.Berat kabel pilin menjadi pertimbangan terhadap pemilihan kekuatan beban kerja tiang beton penopangnnya. Gambar 2 Kabel Udara Tegangan Menengah (KUTM)
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![(PDF) i LAPORAN PRAKTEK KERJA LAPANGAN JURUSAN .](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## (PDF) i LAPORAN PRAKTEK KERJA LAPANGAN JURUSAN .
+SaranAdapun saran yang penyusun dapat berikan bagi seluruh pembaca isi laporan Praktek Kerja Lapangan adalah jika kita mengikuti kegiatan PKL atau sejenisnya supaya kita selalu tepat waktu, cepat dan cermat dalam mengerjakan tugas.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II LANDASAN TEORI 2.1 Tinjauan Pustaka](https://github.com/technlg/images/blob/main/45.jpg)</a>
+## BAB II LANDASAN TEORI 2.1 Tinjauan Pustaka
+11. 10. BAB II LANDASAN TEORI 2.1 Tinjauan Pustaka. Gagasan dan ide penyusun tentang tugas akhir ini didasari atas pengamatan yang dilakukan ketika melakukan Kerja Praktek di PT PLN (Persero) TJBT APP Salatiga Basecamp Surakarta. Penyusun menemukan ketertarikan pada sistem proteksi yang terdapat saluran udara tegangan tinggi, utamanya 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Electromyograph - Universitas Airlangga](https://github.com/technlg/images/blob/main/20.jpg)</a>
+## Electromyograph - Universitas Airlangga
+Prinsip kerja EMG adalah mengukur potensial otot. Seperti diketahui adanya aktifitas otot akan menimbulkan potensial aksi.  Perhatikan skema penyusun otot rangka pada Gambar 2.8. Gambar 2. 8 Skema Penyusun Otot Rangka (Guyton, 2006) 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Dioda, Forward Bias dan Reverse Bias | Elektronika .](https://github.com/technlg/images/blob/main/44.jpg)</a>
+## Dioda, Forward Bias dan Reverse Bias | Elektronika .
+Membahas Dioda, Forward Bias dan Reverse Bias yang mudah dimengerti di Blog Elektronika Bersama Dioda dikemas didalam sebuah kapsul kecil yang terbuat dari kaca atau plastik. Kemasan ini memiliki dua kawat terminal. Yang satu disebut anoda, sedangkan yang lainnya disebut katoda..
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Teknik Elektronika Industri KONSEP DASAR TEKNIK LISTRIK DAN .](https://github.com/technlg/images/blob/main/41.jpg)</a>
+## Teknik Elektronika Industri KONSEP DASAR TEKNIK LISTRIK DAN .
+K2. Menjelaskan prinsip kerja alat ukur yang digunakan K3. Melaksanakan pengukuran energi, frekuensi, daya dan faktor daya listrik secara sistematis L. Merangkai rangkaian mesin pengendali listrik dan rangkaian dasar pneumatik L1. Menguasai prinsip
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![Pendugaan Sebaran Air Tanah Menggunakan Metode Geolistrik .](https://github.com/technlg/images/blob/main/7.jpg)</a>
+## Pendugaan Sebaran Air Tanah Menggunakan Metode Geolistrik .
+1.1. Prinsip Dasar Metode Resistivitas Konsep dasar metode resistivitas adalah Hukum Ohm. Pada tahun 1826 George Simon Ohm melakukan eksperimen menentukan hubungan antara tegangan V pada penghantar dan arus I yang melalui
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![BAB II LANDASAN TEORI A. Tinjauan pustaka](https://github.com/technlg/images/blob/main/54.jpg)</a>
+## BAB II LANDASAN TEORI A. Tinjauan pustaka
+8 BAB II LANDASAN TEORI A. Tinjauan pustaka Berdasarkan sistematika penulisan, pada bab ini akan diuraikan landasan teori yang berkaitan dengan judul Skripsi "Pengaruh kebocoran minyak hidraulik pada pesawat steering gear di kapal LPG/C Gas Walio terhadap 
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![PEKA – Arkib kerja cikguyanto yang kachak.](https://github.com/technlg/images/blob/main/64.jpg)</a>
+## PEKA – Arkib kerja cikguyanto yang kachak.
+4. Penyumbat getah dengan salur penghantar dipasangkan dan kemudian ditutupkan pada mulut kelalang kon. Hujung salur penghantar yang satu lagi dimasukkan ke dalam air kapur seperti dalam rajah di bawah. Proses Penapaian Glukosa 5. Susunan 6.
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank">![SEAMEO Regional Center for](https://github.com/technlg/images/blob/main/42.jpg)</a>
+## SEAMEO Regional Center for
+UNIT PEMBELAJARAN STEM | Magnet dan Induksi Elektromagnetik: Purwarupa Penghantar Listrik Nirkabel iii DAFTAR ISI Kata Pengantar i Daftar Isi iii I Pendahuluan A. Penjelasan Umum 1 B. Pembelajaran STEM pada topik Pembuatan Penghantar
+<a href="https://mnn.zoosnet.net/LR/Chatpre.aspx?id=MNN94995150&p=https://topgrinding.com/" target="_blank"><img src="https://github.com/technlg/images/raw/main/chat11.jpg" alt="zaixianliaotian"/></a><a href="//whatsapp.shibangsoft.com/WhatsApp.php" ><img src="https://github.com/technlg/images/raw/main/chat11.png" alt=""></a>
+## artikel berkaitan:
+* [produk penghancur mudah alih 100 tan j](produk%20penghancur%20mudah%20alih%20100%20tan%20j.md)
+* [laporan projek kilang simen mini india pdf](laporan%20projek%20kilang%20simen%20mini%20india%20pdf.md)
+* [mesin saringan pasir penggetar](mesin%20saringan%20pasir%20penggetar.md)
+* [rahang penghancur berganda](rahang%20penghancur%20berganda.md)
+* [86 co ltd menghancurkan peralatan gmail com](86%20co%20ltd%20menghancurkan%20peralatan%20gmail%20com.md)
+* [persatuan pengendali quary dan pemilik nigeria](persatuan%20pengendali%20quary%20dan%20pemilik%20nigeria.md)
+* [produk pemprosesan dan kegunaan arang batu](produk%20pemprosesan%20dan%20kegunaan%20arang%20batu.md)
+* [peralatan khas untuk projek emas](peralatan%20khas%20untuk%20projek%20emas.md)
+* [menyampaikan dan menyaring parker loadascreen kilang](menyampaikan%20dan%20menyaring%20parker%20loadascreen%20kilang.md)
+* [galas kilang trunnion pengisar](galas%20kilang%20trunnion%20pengisar.md)
